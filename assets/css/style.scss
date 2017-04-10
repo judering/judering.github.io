@@ -25,3 +25,13 @@ a {
 .btn { color: rgba(255, 255, 255, 1.0); background-color: rgba(255, 255, 255, 0.0); border-color: rgba(255, 255, 255, 0.2); }
 .btn:hover { color: rgba(255, 255, 255, 1.0); background-color: rgba(255, 255, 255, 0.4); border-color: rgba(255, 255, 255, 0.5); }
 
+.photo-credit {
+  font-size: small;
+}
+
+.page-header {
+  background: #8B261C;
+  background-image: url("/assets/img/1500x500.jpg");
+  background-repeat: no-repeat;  
+  background-size: cover;
+}
