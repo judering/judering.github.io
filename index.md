@@ -43,10 +43,13 @@ http://www.engageartsfestival.com/engage-festival-2016/music/#adrian-crowley
 ## SEPTEMBER 2016:
 
 Crash ensemble will perform “Swelt Belly at Dawn” on Saturday 24th as part of their marathon concert at Composing the Island festival in the National Concert Hall, Dublin. https://www.nch.ie/Online/Composing-the-Island-Crash-Ensemble-24Sep16
+
 Performance of “Within an Egg of Space” by Concorde for their 40th anniversary concert on the 18th September at the Hugh Lane Gallery, Dublin.
+
 PRAISE FOR ‘WHAT WAS':
 Top 100 albums of the year in the Sunday Times Culture magazine (Dec 7th) featured my album ‘What Was’ as no.9 in the Contemporary Music albums of the year! Delighted to make the grade!
 ‘What Was” was also mentioned by the music critic of the New Yorker, Alex Ross on his blog The Rest is Noise.
+
 ALBUM RELEASE: My debut album What Was has been released on Ergodos records. Funded by a Recording Scheme grant from Music Network. For more details please visit www.ergodos.ie
 
 
