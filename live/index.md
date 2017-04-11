@@ -3,8 +3,8 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
-## Panoval (2006) for piano, violin and tape.
-- Joseph Houston and Aisha Orazbayeva – Lutheran Hall, Adelaide rd. AIC concert.
+## Swells and Shoots (2016) for Adele and Martin Johnson - viola and cello.
+- Performed at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
 
 ## Swelt Belly At Dawn (2013) for Concorde. Piece for trio – clarinet, violin and cello.
 - Concorde ensemble – Aula Maxima, Galway as part of the IAMIC international conference on new music. 11th June 2016
@@ -102,6 +102,9 @@ November 2007
 ## 4-PLAY (2007), for percussion quartet:
 - Percussemble (percussion quartet), Emmaus kirche, Berlin, 1st November 2007
  
+## Panoval (2006) for piano, violin and tape.
+- Joseph Houston and Aisha Orazbayeva – Lutheran Hall, Adelaide rd. AIC concert.
+
 ## Metallurgy (2006), for tape:
 - Sensorium Festival – Project Arts Centre, Cube, 9th March 2011
 - Ergodos festival, Portrait of Judith Ring, Kevin Barry room, National Concert Hall,
