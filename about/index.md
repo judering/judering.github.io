@@ -1,10 +1,11 @@
 ---
 title: About
 ---
-<img src="/assets/img/Judith_by_Olesya.jpg">
-<div class="photo-credit">© Olesya Zdorovetska</div>
-
 Welcome to my website. I am a composer/musician/performer and all round music lover based in Dublin, Ireland. I have been writing music for the past 15 years and have been greatly inspired by living in such places as Berlin, London, York, Paris and Dublin. In general my music stems from the electro-acoustic world and its core technique is based on the pratices of musique concrète. Over the years this has expanded and been influenced by more improvised and instrumental territories derived from a deep exploration of instrumental timbre through collaborative projects with a large number of solo musicians. My debut album What Was is out now on Ergodos records.
+<div class="photo-with-credit">
+  <img src="/assets/img/Judith_by_Olesya.jpg">
+  <div>© Olesya Zdorovetska</div>
+</div>
 
 My work is deeply textural and developed through complex layering techniques. For the most part each piece is highly collaborative as I work closely with musicians to find out what their instruments can do. Over the years I have recorded a wide range of instruments from the standard orchestral choices to the Ondes Martenot and adapted viola. Each player offers something new to the mix and so each piece is unique to the player(s) involved.
 
