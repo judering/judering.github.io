@@ -26,7 +26,7 @@ Sepia ensemble, Poland perform "Swelt Belly at Dawn" for clarinet, violin and ce
 
 ## MARCH 2017: 
 
-[Clang Sayne](www.clangsayne.com) album release mini-tour 23rd - 26th March, Wexford, Dublin, Galway and Cork. As part of Laura Hyland's group I sing and play cello with Laura on voice and guitar, Matthew Jacobson (drums) and Carolyn Goodwin (clarinets)
+[Clang Sayne](http://www.clangsayne.com) album release mini-tour 23rd - 26th March, Wexford, Dublin, Galway and Cork. As part of Laura Hyland's group I sing and play cello with Laura on voice and guitar, Matthew Jacobson (drums) and Carolyn Goodwin (clarinets)
 
 Nathalie Forget performs Flux for Ondes Martenot and tape as part of Les Conversatoires #5 on March 23rd at 21.00 at Le Triton, 11 bis rue du coq français, 93260 Les Lilas
 

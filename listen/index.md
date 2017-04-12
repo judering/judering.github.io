@@ -1,7 +1,7 @@
 ---
 title: Listen
 ---
-My debut album "What was" is available on [ergodos](http://www.ergodos.ie) records. You can purchase it through their website. Below is a selection of live recordings from various concerts over the years. 
+My debut album "What was" is available on [ergodos](https://ergodos.ie/shop/records/what-was/) records. You can purchase it through their website. Below is a selection of live recordings from various concerts over the years. 
 <hr>
 Listen to a small selection of my work below:
 <br><br>
