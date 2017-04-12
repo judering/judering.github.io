@@ -12,7 +12,7 @@ My work is deeply textural and developed through improvisation and complex layer
 I will continue to explore different instruments and also different instrumental styles expanding out of the classical domain and into jazz, world music, traditional and popular styles to see what I can learn from them.
 
 Over the years my work has been commissioned and performed by numerous ensembles in Europe and North America including Concorde ensemble (Ireland), Crash ensemble (Ireland), Bradyworks (Canada), Sepia ensemble (Poland) and Percussemble (Germany). I have also worked/recorded closely with a great many wonderful musicians such as Jane O’Leary (piano), Paul Roe (clarinet), Kate Ellis (cello), Malachy Robinson (double bass), Michelle O’Rourke (mezzo soprano), Martin Johnson (cello), Adele Johnson (viola), Elaine Clark (violin), Garth Knox (viola), Natasha Lohan (mezzo soprano), Rolf Hind (piano), Laura Moody (cello), Beau Stocker (percussion), Damien Harron (percussion), Panayiotis Demopoulos (piano), Valerie Pearson (violin), Elisabeth Smalt (adapted viola), Nathalie Forget (Ondes Martenot), Andre Leroux (tenor saxophone) and many more. See my LIVE page to find out who played on what.
-<div class="photo-with-credit">
+<div class="photo-with-credit-right">
   <img src="/assets/img/profile.jpg">
   <div>© Laura Sheeran</div>
 </div>
@@ -20,5 +20,7 @@ Over the years my work has been commissioned and performed by numerous ensembles
 My colleague Laura Hyland and I run an events company called Strike the Air. We hosted a night called Listen at Lilliput at Lilliput Press in Stoneybatter, Dublin for three years from 2012 - 2015. This was a platform for musicians, composers and soundartists of all discriptions to showcase new and old work in an intimate and sympathetic listening environment.
 
 After completing my PhD by composition at the University of York, UK in 2009 I returned to Ireland to re-establish myself on the Irish music scene. Since then I have expanded my musical output by writing for theatre (OFF PLAN by Simon Doyle), putting together a multidisciplinary festival called Sensorium with two colleagues of mine from York, Angie Atmadjaja and Emily Kalies (as The-Link-Project) and accompanying composer/songwriter Laura Hyland on vocals under the name Clang Sayne.
+
+I also enjoy painting and drawing. You can see an example of my work on my album cover. 
 
 For a list of works check out my LIVE page or head to my LISTEN page to hear a selection of my work.

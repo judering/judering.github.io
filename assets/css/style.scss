@@ -48,16 +48,29 @@ a {
   width: 300px;
   float: left;
   margin-right: 1em;
-
 }
+
+.photo-with-credit-right {
+  font-size: small;
+  width: 300px;
+  float: right;
+  margin-left: 1em;
+}
+
 
 @media screen and (max-width: 42em) {
-.photo-with-credit {
-  font-size: small;
-  width: 100%;
-  float: none;
-  margin-right: 1em;
-}
+  .photo-with-credit {
+    font-size: small;
+    width: 100%;
+    float: none;
+    margin-right: 1em;
+  }
+  .photo-with-credit-right {
+    font-size: small;
+    width: 100%;
+    float: none;
+    margin-left: 1em;
+  }
 }
 
 .video {
@@ -71,3 +84,5 @@ strong {
   font-weight: normal;
   font-size: larger; 
 }
+
+p {text-align: justify}
