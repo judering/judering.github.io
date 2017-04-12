@@ -20,11 +20,13 @@ Over the past few years I have been working on several projects and pieces. Some
 
 Crash ensemble perform "Swelt Belly at Dawn" for clarinet, violin and cello (2013) on Easter Monday: Concert 1: Dublin Castle at 14:40; Concert 2: Civic Theatre, Tallaght at 20:15
  
+Singing Mendelssohn's Elijah in the National Concert Hall on the 9th April as a member of the Culwick choir. I sing tenor.
+
 Sepia ensemble, Poland perform "Swelt Belly at Dawn" for clarinet, violin and cello (2013) at the 46. INTERNATIONAL POZNAŃ MUSIC SPRING FESTIVAL 2017. 04.04 (WT) / 19:00 / Aula Nova, Plac Stefana Stuligrosza 1 / free admission
 
 ## MARCH 2017: 
 
-Clang Sayne album release mini-tour 23rd - 26th March, Wexford, Dublin, Galway and Cork. As part of Laura Hyland's group I sing and play cello with Laura on voice and guitar, Matthew Jacobson (drums) and Carolyn Goodwin (clarinets)
+[Clang Sayne](www.clangsayne.com) album release mini-tour 23rd - 26th March, Wexford, Dublin, Galway and Cork. As part of Laura Hyland's group I sing and play cello with Laura on voice and guitar, Matthew Jacobson (drums) and Carolyn Goodwin (clarinets)
 
 Nathalie Forget performs Flux for Ondes Martenot and tape as part of Les Conversatoires #5 on March 23rd at 21.00 at Le Triton, 11 bis rue du coq français, 93260 Les Lilas
 
