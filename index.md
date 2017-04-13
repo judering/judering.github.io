@@ -105,70 +105,76 @@ Paul Roe performs “Whispering the turmoil down” for bass clarinet and tape a
 
 ## JULY 2014:
 
-- Recording the final two pieces for my forthcoming CD on Ergodos records – “To Pull An Eerie Twist” with Kate Ellis (cello) and Michelle O’Rourke (voice) and “Mouthpiece” with Michelle O’Rourke and tape.
+Recording the final two pieces for my forthcoming CD on Ergodos records – “To Pull An Eerie Twist” with Kate Ellis (cello) and Michelle O’Rourke (voice) and “Mouthpiece” with Michelle O’Rourke and tape.
 
 ## JUNE 2014:
 
-- “Up to my f-holes” will be performed by Kate Ellis as part of AIC’s Irish Canon series. This is happening in the Kevin Barry room at the National Concert Hall on the 19th June at 20.30.
+“Up to my f-holes” will be performed by Kate Ellis as part of AIC’s Irish Canon series. This is happening in the Kevin Barry room at the National Concert Hall on the 19th June at 20.30.
 https://www.facebook.com/events/693039417400263/?ref_dashboard_filter=upcoming
-- “FLUX – Jeux de bague” is getting a couple more outings this month. Natalie Forget will perform the piece on the 14th of June, 19h, at Longeval, domaine culturel à Saint Just d’Avray, France. And also on the 21st of June at Lilas en Scène.
+
+“FLUX – Jeux de bague” is getting a couple more outings this month. Natalie Forget will perform the piece on the 14th of June, 19h, at Longeval, domaine culturel à Saint Just d’Avray, France. And also on the 21st of June at Lilas en Scène.
 https://www.facebook.com/pages/Longeval-domaine-culturel/666091273438161?fref=ts
-- Recording my piece “phorM” for tenor saxophone and tape at Arad Studios with Nick Roth!
+
+Recording my piece “phorM” for tenor saxophone and tape at Arad Studios with Nick Roth!
 
 ## MAY 2014:
 
-- Recorded “Swelt Belly at Dawn” at Arad studios with Concorde (Paul Roe, Elaine Clark and Martin Johnson). This will be featured on my forthcoming release on Ergodos records later this year.
+Recorded “Swelt Belly at Dawn” at Arad studios with Concorde (Paul Roe, Elaine Clark and Martin Johnson). This will be featured on my forthcoming release on Ergodos records later this year.
 
 ## APRIL 2014:
 
-- “Swelt Belly at Dawn” will be performed by Concorde at their Up Close with Music series at the RHA Gallery on Sunday April 27th from 2.30 – 4.30 pm.
-- “Mouthpiece” for voice and tape will be performed by Michelle O’Rourke as part of the AIC’s series ‘The Irish Canon’. Cork School of Music, Union Quay, Cork, 23rd April, 20.00.
-- “FLUX – Jeux de bague” will be performed by Nathalie twice this month, first in Paris and then in Belgium:
-- – Centre Culturel Irlandais, Paris – 8th April 2014
-- – Kraak Festival, Anvers, Belgium 26th of April 2014.
-- “Whispering the Turmoil Down” will be performed by Paul Roe at The AIC The Irish Canon Season 2 –  8 Apr, 1pm Paul Roe Mary Immaculate College, Limerick.
+“Swelt Belly at Dawn” will be performed by Concorde at their Up Close with Music series at the RHA Gallery on Sunday April 27th from 2.30 – 4.30 pm.
+
+“Mouthpiece” for voice and tape will be performed by Michelle O’Rourke as part of the AIC’s series ‘The Irish Canon’. Cork School of Music, Union Quay, Cork, 23rd April, 20.00.
+
+“FLUX – Jeux de bague” will be performed by Nathalie twice this month, first in Paris and then in Belgium:
+– Centre Culturel Irlandais, Paris – 8th April 2014
+– Kraak Festival, Anvers, Belgium 26th of April 2014.
+
+“Whispering the Turmoil Down” will be performed by Paul Roe at The AIC The Irish Canon Season 2 –  8 Apr, 1pm Paul Roe Mary Immaculate College, Limerick.
 
 ## MARCH 2014:
 
-- This month I recording 3 pieces for my upcoming retrospective album, Up to my f-holes for cello and tape (Kate Ellis); Whispering the Turmoil Down for bass clarinet and tape (Paul Roe) and My One’s Bigger Than Yours for double bass (Malachy Robinson) and cello (Kate Ellis). We recorded at Arad studios on Pembroke Row by the lovely Leslie Keye and they sound great! Can’t wait to record the next 4 pieces and to hopefully release the CD later this year on Ergodos records. These recordings are made possible through a Music Network Recording Scheme grant in association with the Arts Council. Thanks so much to everyone involved.
+This month I recording 3 pieces for my upcoming retrospective album, Up to my f-holes for cello and tape (Kate Ellis); Whispering the Turmoil Down for bass clarinet and tape (Paul Roe) and My One’s Bigger Than Yours for double bass (Malachy Robinson) and cello (Kate Ellis). We recorded at Arad studios on Pembroke Row by the lovely Leslie Keye and they sound great! Can’t wait to record the next 4 pieces and to hopefully release the CD later this year on Ergodos records. These recordings are made possible through a Music Network Recording Scheme grant in association with the Arts Council. Thanks so much to everyone involved.
 
 ## FEBRUARY 2014:
 
-- “Swelt Belly At Dawn” will be performed by Concorde who join the Galway Ensemble in Residence: ConTempo Quartet for a concert in the Aula Maxima, NUI Galway at 8 pm on 8th February.
+“Swelt Belly At Dawn” will be performed by Concorde who join the Galway Ensemble in Residence: ConTempo Quartet for a concert in the Aula Maxima, NUI Galway at 8 pm on 8th February.
 
 ## DECEMBER 2013:
 
-- “Mouthpiece” will be performed by Michelle O’Rourke in the Kevin Barry Room, National Concert Hall at 20.30 on Tuesday 3rd December 2013 as part of the Irish Canon Series of concerts presented by the Association of Irish Composers (AIC).
+“Mouthpiece” will be performed by Michelle O’Rourke in the Kevin Barry Room, National Concert Hall at 20.30 on Tuesday 3rd December 2013 as part of the Irish Canon Series of concerts presented by the Association of Irish Composers (AIC).
 
 ## NOVEMBER 2013:
 
-- “Flux – jeux de bague” – performed by Nathalie Forget on Ondes Martenot at the Festival für zeitgenössische Musik on 17. November 2013 auf Kampnagel, Hamburg, Germany at 22h00.
+“Flux – jeux de bague” – performed by Nathalie Forget on Ondes Martenot at the Festival für zeitgenössische Musik on 17. November 2013 auf Kampnagel, Hamburg, Germany at 22h00.
 
 ## OCTOBER 2013:
 
-- “Whispering the Turmoil Down” – performed by Paul Roe on bass clarinet, Boydell room, House 5, Trinity College Dublin, 6.30pm, 16th Oct
-- “Swelt belly at dawn” – performed by Concorde at the Hugh Lane Gallery at noon, 6th Oct
+“Whispering the Turmoil Down” – performed by Paul Roe on bass clarinet, Boydell room, House 5, Trinity College Dublin, 6.30pm, 16th Oct
+“Swelt belly at dawn” – performed by Concorde at the Hugh Lane Gallery at noon, 6th Oct
 
 ## SEPTEMBER 2013:
 
-- “Metallurgy” – Culturenight on the 20th –  at the CMC.
+“Metallurgy” – Culturenight on the 20th –  at the CMC.
 
 ## AUGUST 2013:
 
-- Kate Ellis – “Up to my f-holes” – for cello and tape at Kaleidoscope as part of the Kilkenny Arts Festival
-- Metallurgy – a percussive tape piece – part of a week-long installation called Soundworks curated by Crash ensemble director Kate Ellis – at the Kilkenny Arts Festival.
+Kate Ellis – “Up to my f-holes” – for cello and tape at Kaleidoscope as part of the Kilkenny Arts Festival
+
+Metallurgy – a percussive tape piece – part of a week-long installation called Soundworks curated by Crash ensemble director Kate Ellis – at the Kilkenny Arts Festival.
 
 ## JUNE 2013:
 
-- Nathalie Forget will play my piece “FLUX – jeux de bague” for Ondes Martenot and tape at Musée des archives, Chartres, Fr., 8th of June, 19h00.
+Nathalie Forget will play my piece “FLUX – jeux de bague” for Ondes Martenot and tape at Musée des archives, Chartres, Fr., 8th of June, 19h00.
 
 ## APRIL 2013:
 
-- Nathalie Forget will play my piece “FLUX – jeux de bague” for Ondes Martenot and tape at Concert for Amnesty International, 7th April 2013, 17h, Temple de Dreux (Fr).
+Nathalie Forget will play my piece “FLUX – jeux de bague” for Ondes Martenot and tape at Concert for Amnesty International, 7th April 2013, 17h, Temple de Dreux (Fr).
 
 ## FEBRUARY 2013:
 
-- Kate Ellis performs “Up to my f-holes” at the CMC Salon at Waterford New Music Week 2013
+Kate Ellis performs “Up to my f-holes” at the CMC Salon at Waterford New Music Week 2013
 
 ## JANUARY 2013:
 
