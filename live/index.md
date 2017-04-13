@@ -7,6 +7,13 @@ title: Performances
 - Performed at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
 
 ## Swelt Belly At Dawn (2013) for Concorde. Piece for trio – clarinet, violin and cello.
+- Crash ensemble perform "Swelt Belly at Dawn" on 17th April: Concert 1: Dublin Castle at 14:40; Concert 2: Civic Theatre, Tallaght at 20:15
+- Sepia ensemble, Poland perform "Swelt Belly at Dawn" at the 46. INTERNATIONAL POZNAŃ MUSIC SPRING FESTIVAL 2017. 4th April / 19:00 / Aula Nova, Plac Stefana Stuligrosza 1 
+- Crash ensemble perform "Swelt Belly at Dawn" as part of International Woman's Day, 8th March, at the National Concert Hall, Dublin.
+- Crash ensemble perform “Swelt Belly at Dawn” in the Netherlands on Sat, 26th November 2016:
+[explore-the-north.nl](http://explore-the-north.nl/act/adrian-crowley-crash-ensemble)
+- Crash ensemble perform and workshop “Swelt Belly at Dawn” in Bandon, Cork as part of [Engage arts festival](http://www.engageartsfestival.com/engage-festival-2016/music/#adrian-crowley), October 2016.
+- Crash ensemble - National Concert Hall,  24th September 2016 as part of their marathon concert at Composing the Island festival at the [National Concert Hall](https://www.nch.ie/Online/Composing-the-Island-Crash-Ensemble-24Sep16), Dublin. 
 - Concorde ensemble – Aula Maxima, Galway as part of the IAMIC international conference on new music. 11th June 2016
 - Palomar Ensemble and ACM Chicago – Chicago, Illinois – 6th May 2016
 - Sepia ensemble – Poznan, Poland – 28th Feb 2015 (Details coming soon).
@@ -17,6 +24,7 @@ title: Performances
 - RHA, Ely Place, Dublin, 20th January 2013. Two performances.
 
 ## FLUX – jeux de bague (2012) for Ondes Martenot and tape. Written for and in collaboration with Nathalie Forget.
+- Nathalie Forget performs Flux for Ondes Martenot and tape as part of Les Conversatoires #5 on March 23rd, 2017 at 21.00 at Le Triton, 11 bis rue du coq français, 93260 Les Lilas
 - 21st of June at Lilas en Scène.
 - 14th of June, 19h, at Longeval, domaine culturel à Saint Just d’Avray, France.
 - Kraak Festival, Anvers, Belgium 26th of April 2014.
@@ -51,6 +59,7 @@ Commissioned by Concorde with funds from the Arts Council.
  
 ## …within an egg of space… (2009), for sextet and tape: 
 Commissioned by Concorde ensemble with funds from the Arts Council.
+- Concorde for their 40th anniversary concert on the 18th September, 2017, Hugh Lane Gallery.
 - Concorde ensemble – Hugh Lane Gallery, 22nd November 2009
 - Concorde ensemble – National Gallery of Ireland, 7th June 2009
  
@@ -69,6 +78,7 @@ Postgraduate commission from the University of York.
 May 2008
  
 ## Up to my f-holes (2008), for cello and tape:
+- Kate Ellis performs "Up to my f-holes" for cello and tape as part of the Spike Cello Festival at the Hugh Lane gallery at noon on the 12th February 2017 [www.spikecellofest.com](http://www.spikecellofest.com)
 - Kate Ellis – AIC’s Irish Canon series. Kevin Barry room at the National Concert Hall on the 19th June at 20.30.
 - Kate Ellis – as part of Kaleidoscope at the Kilkenny Arts Festival, 12th August, 2013
 - Kate Ellis – As part of Love: Live Music day on the 21st June 2012, Dublin City Traffic Control Office and for broadcast on Dublin City fm.

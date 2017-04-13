@@ -51,12 +51,11 @@ Toured Wexford (Fusion cafe), Dublin (Blás cafe, Chocolate Factory) and Galway 
 
 ## OCTOBER 2016:
 
-Crash ensemble perform and workshop “Swelt Belly at Dawn” in Bandon, Cork as part of Engage arts festival:
-http://www.engageartsfestival.com/engage-festival-2016/music/#adrian-crowley
+Crash ensemble perform and workshop “Swelt Belly at Dawn” in Bandon, Cork as part of [Engage arts festival](http://www.engageartsfestival.com/engage-festival-2016/music/#adrian-crowley)
 
 ## SEPTEMBER 2016:
 
-Crash ensemble will perform “Swelt Belly at Dawn” on Saturday 24th as part of their marathon concert at Composing the Island festival in the National Concert Hall, Dublin. https://www.nch.ie/Online/Composing-the-Island-Crash-Ensemble-24Sep16
+Crash ensemble will perform “Swelt Belly at Dawn” on Saturday 24th as part of their marathon concert at Composing the Island festival in the [National Concert Hall](https://www.nch.ie/Online/Composing-the-Island-Crash-Ensemble-24Sep16), Dublin. 
 
 Performance of “Within an Egg of Space” by Concorde for their 40th anniversary concert on the 18th September at the Hugh Lane Gallery, Dublin.
 
