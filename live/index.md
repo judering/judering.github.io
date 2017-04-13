@@ -79,7 +79,9 @@ May 2008
  
 ## Up to my f-holes (2008), for cello and tape:
 - Kate Ellis performs "Up to my f-holes" for cello and tape as part of the Spike Cello Festival at the Hugh Lane gallery at noon on the 12th February 2017 [www.spikecellofest.com](http://www.spikecellofest.com)
-- Kate Ellis – AIC’s Irish Canon series. Kevin Barry room at the National Concert Hall on the 19th June at 20.30.
+- Kate Ellis performed “Up to my f-holes” for cello and tape in Galway, May 2015.
+- Kate Ellis performed “Up to my f-holes” for cello and tape as part of the AIC “Irish Canon” gig in Limerick. 21 April, 2015
+- Kate Ellis – AIC’s Irish Canon series. Kevin Barry room at the National Concert Hall on the 19th June, 2014 at 20.30.
 - Kate Ellis – as part of Kaleidoscope at the Kilkenny Arts Festival, 12th August, 2013
 - Kate Ellis – As part of Love: Live Music day on the 21st June 2012, Dublin City Traffic Control Office and for broadcast on Dublin City fm.
 - Kate Ellis – Crash ensemble, How About Now, Bandon, Cork, September 2011
