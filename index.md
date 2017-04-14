@@ -11,7 +11,7 @@ Over the past few years I have been working on several projects and pieces. Some
  - SAY - 40 minute piece for 4 voices and electronics and based on a text by Michael Gallen. I have plans to finish and produce this by the end of 2017.
  - The Birthstar - Choir piece on a text by Laura Hyland. Ready to workshop and perform with a willing choir. Please contact me for more information. 
  - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare.
- - Schmetterling - piano piece. Almost complete. 
+ - Fluttering Schmetterling - piano piece. Almost complete. 
  
  
 # RECENT AND UPCOMING PERFORMANCES
