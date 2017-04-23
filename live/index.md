@@ -78,6 +78,7 @@ Postgraduate commission from the University of York.
 May 2008
  
 ## Up to my f-holes (2008), for cello and tape:
+- Kate Ellis performs "Up to my f-holes" for cello and tape with live drawing by Rory Tangney at Phonica in Smock Alley on the 24th April 2017.
 - Kate Ellis performs "Up to my f-holes" for cello and tape as part of the Spike Cello Festival at the Hugh Lane gallery at noon on the 12th February 2017 [www.spikecellofest.com](http://www.spikecellofest.com)
 - Kate Ellis performed “Up to my f-holes” for cello and tape in Galway, May 2015.
 - Kate Ellis performed “Up to my f-holes” for cello and tape as part of the AIC “Irish Canon” gig in Limerick. 21 April, 2015

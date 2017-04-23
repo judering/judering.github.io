@@ -18,6 +18,8 @@ Over the past few years I have been working on several projects and pieces. Some
 
 ## APRIL 2017:
 
+Kate Ellis will perform "Up to my f-holes" with live drawing by Rory Tangney at [Phonica](https://www.facebook.com/events/239157326552096/) in Smock Alley Theatre alongside work by Laura Hyland, Estevo Creus & Keith Payne, Anthony Kelly &David Stalling, Robert Herbert McClean, Ásta Fanney Sigurðardóttir. 
+
 Crash ensemble perform "Swelt Belly at Dawn" for clarinet, violin and cello (2013) on Easter Monday: Concert 1: Dublin Castle at 14:40; Concert 2: Civic Theatre, Tallaght at 20:15
  
 Singing Mendelssohn's Elijah in the National Concert Hall on the 9th April as a member of the Culwick choir. I sing tenor.
