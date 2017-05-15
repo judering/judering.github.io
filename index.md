@@ -18,7 +18,7 @@ Over the past few years I have been working on several projects and pieces. Some
 
 ## MAY 2017:
 
-Performance with Clang Sayne at [Kaleidoscope](http://www.kaleidoscopenight.com) alongside music by Mozart, Byrd, Éna Brennan and Alma Kelliher. 3rd May, 8pm
+Performance with Clang Sayne at [Kaleidoscope Night](http://www.kaleidoscopenight.com) alongside music by Mozart, Byrd, Éna Brennan and Alma Kelliher. 3rd May, 8pm
 
 ## APRIL 2017:
 
