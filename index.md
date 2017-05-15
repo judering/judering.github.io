@@ -16,6 +16,10 @@ Over the past few years I have been working on several projects and pieces. Some
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## MAY 2017:
+
+Performance with Clang Sayne at [Kaleidoscope](http://www.kaleidoscopenight.com) alongside music by Mozart, Byrd, Éna Brennan and Alma Kelliher. 3rd May, 8pm
+
 ## APRIL 2017:
 
 Kate Ellis will perform "Up to my f-holes" with live drawing by Rory Tangney at [Phonica](https://www.facebook.com/events/239157326552096/) in Smock Alley Theatre alongside work by Laura Hyland, Estevo Creus & Keith Payne, Anthony Kelly &David Stalling, Robert Herbert McClean, Ásta Fanney Sigurðardóttir. 
