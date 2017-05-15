@@ -16,6 +16,10 @@ Over the past few years I have been working on several projects and pieces. Some
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## JUNE 2017:
+
+Heading into Arad studio at the end of June to record 3 song-poems with Leslie Keye on recording and producing, Kate Ellis on cello, Lisa Dowdall on viola, Adrian Hart on violin and myself on vocals and piano. Poems by [Roderick Ford](http://roderickford.com).
+
 ## MAY 2017:
 
 Performance with Clang Sayne at [Kaleidoscope Night](http://www.kaleidoscopenight.com) alongside music by Mozart, Byrd, Éna Brennan and Alma Kelliher. 3rd May, 8pm
