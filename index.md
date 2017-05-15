@@ -18,6 +18,8 @@ Over the past few years I have been working on several projects and pieces. Some
 
 ## JUNE 2017:
 
+Kate Ellis and Lisa Dowdall will perform Swells and Shoots for viola and cello at The Ark, Temple bar, Dublin on the 24th June.
+
 Heading into Arad studio at the end of June to record 3 song-poems with Leslie Keye on recording and producing, Kate Ellis on cello, Lisa Dowdall on viola, Adrian Hart on violin and myself on vocals and piano. Poems by [Roderick Ford](http://roderickford.com).
 
 ## MAY 2017:
