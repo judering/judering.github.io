@@ -4,6 +4,7 @@ title: Performances
 # PERFORMANCES (by piece):
 
 ## Swells and Shoots (2016) for Adele and Martin Johnson - viola and cello.
+- Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, June 24th 2017.
 - Performed at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
 
 ## Swelt Belly At Dawn (2013) for Concorde. Piece for trio – clarinet, violin and cello.
