@@ -7,7 +7,7 @@ title: Judith Ring
 Over the past few years I have been working on several projects and pieces. Some big and some small. Here is a breakdown of work in progress and work ready for performance:
 
  - Cello Suite for Martin Johnson. I just received a bursary from the Arts Council to write music in collaboration with cellist Martin Johnson so we will be working together on a number of ideas this year. 
- - 4 songs - using 4 poems by Roderick Ford. Currently finishing the instrumental arrangements for these and will record and self release them this summer. Performances the follow. 
+ - 4 art songs - using 4 poems by Roderick Ford. Currently finishing the instrumental arrangements for these and will record and self release them this summer. Performances the follow. 
  - SAY - 40 minute piece for 4 voices and electronics and based on a text by Michael Gallen. I have plans to finish and produce this by the end of 2017.
  - The Birthstar - Choir piece on a text by Laura Hyland. Ready to workshop and perform with a willing choir. Please contact me for more information. 
  - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare.
@@ -20,7 +20,7 @@ Over the past few years I have been working on several projects and pieces. Some
 
 Kate Ellis and Lisa Dowdall will perform Swells and Shoots for viola and cello at The Ark, Temple bar, Dublin on the 24th June.
 
-Heading into Arad studio at the end of June to record 3 song-poems with Leslie Keye on recording and producing, Kate Ellis on cello, Lisa Dowdall on viola, Adrian Hart on violin and myself on vocals and piano. Poems by [Roderick Ford](http://roderickford.com).
+Heading into Arad studio at the end of June to record 3 art songs with Leslie Keye on recording and producing, Kate Ellis on cello, Lisa Dowdall on viola, Adrian Hart on violin and myself on vocals and piano. On poems by [Roderick Ford](http://roderickford.com).
 
 ## MAY 2017:
 
