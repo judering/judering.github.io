@@ -22,7 +22,7 @@ Jenn Kirby curated a great concert of Irish music at Soundscape festival in Ital
 
 As part of a Talks and Events series for kids/families, Kate Ellis and Lisa Dowdall will perform [Swells and Shoots](https://soundcloud.com/judith-ring/swells-and-shoots) for viola and cello at [The Ark](http://www.templebargallery.com/events/event/discovery-trail-music-rooms), Temple bar, Dublin on the 24th June as part of a walking musical discovery trail through Temple Bar, Dublin.
 
-Heading into Arad studio at the end of June to record 4 art songs with Leslie Keye on recording and producing, Kate Ellis on cello, Lisa Dowdall on viola, Adrian Hart on violin and myself on vocals and piano. On poems by [Roderick Ford](http://roderickford.com).
+Heading into [Arad studio](https://www.facebook.com/Arad.studios/) at the end of June to record 4 art songs with Leslie Keye on recording and producing, Kate Ellis on cello, Lisa Dowdall on viola, Adrian Hart on violin and myself on vocals and piano. On poems by [Roderick Ford](http://roderickford.com).
 
 ## MAY 2017:
 
