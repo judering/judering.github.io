@@ -18,6 +18,8 @@ Over the past few years I have been working on several projects and pieces. Some
 
 ## JUNE 2017:
 
+Jenn Kirby curated a great concert of Irish music at Soundscape festival in Italy including my piece Whispering the Turmoil Down for bass clarinet and tape and others by Amanda Feery, Ann Cleare, Anna Murray, Enda Bates and Kerry Hagan. You can check out photos from the concert here: [Daryl Feehely Photography and Videography](https://www.facebook.com/darylfeehely/). 27th June, 2017, Auditorium Citta di Maccagno, Italy. 
+
 As part of a Talks and Events series for kids/families, Kate Ellis and Lisa Dowdall will perform [Swells and Shoots](https://soundcloud.com/judith-ring/swells-and-shoots) for viola and cello at [The Ark](http://www.templebargallery.com/events/event/discovery-trail-music-rooms), Temple bar, Dublin on the 24th June as part of a walking musical discovery trail through Temple Bar, Dublin.
 
 Heading into Arad studio at the end of June to record 4 art songs with Leslie Keye on recording and producing, Kate Ellis on cello, Lisa Dowdall on viola, Adrian Hart on violin and myself on vocals and piano. On poems by [Roderick Ford](http://roderickford.com).
