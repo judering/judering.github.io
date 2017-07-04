@@ -97,6 +97,7 @@ May 2008
 University, 28 February 2008
  
 ## Whispering The Turmoil Down (2007), for bass clarinet and tape:
+- Nick Morandi - concert of Irish music at Soundscape festival in Italy, 27th June 2017.
 - Paul Roe – The AIC The Irish Canon Season 2 –  
 8 Apr, 1pm Paul Roe Mary Immaculate College, Limerick
 - Paul Roe – Royal Irish Academy, 16th October 2013

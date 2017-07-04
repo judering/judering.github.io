@@ -7,7 +7,7 @@ title: Judith Ring
 Over the past few years I have been working on several projects and pieces. Some big and some small. Here is a breakdown of work in progress and work ready for performance:
 
  - Cello Suite for Martin Johnson. I just received a bursary from the Arts Council to write music in collaboration with cellist Martin Johnson so we will be working together on a number of ideas this year. 
- - 4 art songs - using 4 poems by Roderick Ford. Currently finishing the instrumental arrangements for these and will record and self release them this summer. Performances the follow. 
+ - The Ring Lieder - on 4 poems by [Roderick Ford](www.roderickford.com): The Old Train, A Plate of Holes, Amber and The Sylph. I have just almost finished recording these songs in [Arad Studio](https://www.facebook.com/Arad.studios/) with Leslie Keye and look forward to releasing them digitally in the next weeks. Myself on voice and piano, Adrian Hart on violin, Lisa Dowdall on viola and Kate Ellis on cello.  
  - SAY - 40 minute piece for 4 voices and electronics and based on a text by Michael Gallen. I have plans to finish and produce this by the end of 2017.
  - The Birthstar - Choir piece on a text by Laura Hyland. Ready to workshop and perform with a willing choir. Please contact me for more information. 
  - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare.
@@ -18,7 +18,7 @@ Over the past few years I have been working on several projects and pieces. Some
 
 ## JUNE 2017:
 
-Jenn Kirby curated a great concert of Irish music at Soundscape festival in Italy including my piece Whispering the Turmoil Down for bass clarinet and tape and others by Amanda Feery, Ann Cleare, Anna Murray, Enda Bates and Kerry Hagan. You can check out photos from the concert here: [Daryl Feehely Photography and Videography](https://www.facebook.com/darylfeehely/). 27th June, 2017, Auditorium Citta di Maccagno, Italy. 
+Jenn Kirby curated a great concert of Irish music at Soundscape festival in Italy including my piece Whispering the Turmoil Down for bass clarinet and tape performed by Nick Morandi with other pieces by Amanda Feery, Ann Cleare, Anna Murray, Enda Bates and Kerry Hagan. You can check out photos from the concert here: [Daryl Feehely Photography and Videography](https://www.facebook.com/darylfeehely/). 27th June, 2017, Auditorium Citta di Maccagno, Italy. 
 
 As part of a Talks and Events series for kids/families, Kate Ellis and Lisa Dowdall will perform [Swells and Shoots](https://soundcloud.com/judith-ring/swells-and-shoots) for viola and cello at [The Ark](http://www.templebargallery.com/events/event/discovery-trail-music-rooms), Temple bar, Dublin on the 24th June as part of a walking musical discovery trail through Temple Bar, Dublin.
 
