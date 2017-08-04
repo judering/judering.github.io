@@ -11,10 +11,16 @@ Over the past few years I have been working on several projects and pieces. Some
  - SAY - 40 minute piece for 4 voices and electronics and based on a text by Michael Gallen. I have plans to finish and produce this by the end of 2017.
  - The Birthstar - Choir piece on a text by Laura Hyland. Ready to workshop and perform with a willing choir. Please contact me for more information. 
  - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare.
- - Fluttering Schmetterling - piano piece. Almost complete. 
+ - Mirror Moth - piano piece. Almost complete. 
  
  
 # RECENT AND UPCOMING PERFORMANCES
+
+## NOVEMBER 2017:
+Concorde will perform Swells and Shoots in Hong Kong on November 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert. This concert will also feature pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
+
+## SEPTEMBER 2017:
+Composer and performer Benjamin Dwyer will present a piece I wrote with Peter Moran a number of years ago called Anois is Arís initially for psaltery and tape but Benjamin will perform it on the guitar. This takes place on the 28 September at the Ryogoku-Monten Hall, Tokyo, Japan. 
 
 ## JUNE 2017:
 
