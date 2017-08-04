@@ -8,6 +8,7 @@ title: Performances
 - Performed at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
 
 ## Swelt Belly At Dawn (2013) for Concorde. Piece for trio – clarinet, violin and cello.
+- Concorde - Hong Kong, November 4 at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert
 - Crash ensemble perform "Swelt Belly at Dawn" on 17th April: Concert 1: Dublin Castle at 14:40; Concert 2: Civic Theatre, Tallaght at 20:15
 - Sepia ensemble, Poland perform "Swelt Belly at Dawn" at the 46. INTERNATIONAL POZNAŃ MUSIC SPRING FESTIVAL 2017. 4th April / 19:00 / Aula Nova, Plac Stefana Stuligrosza 1 
 - Crash ensemble perform "Swelt Belly at Dawn" as part of International Woman's Day, 8th March, at the National Concert Hall, Dublin.
