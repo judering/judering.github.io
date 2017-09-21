@@ -17,7 +17,7 @@ Over the past few years I have been working on several projects and pieces. Some
 # RECENT AND UPCOMING PERFORMANCES
 
 ## NOVEMBER 2017:
-Concorde will perform Swells and Shoots in Hong Kong on November 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert. This concert will also feature pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
+Concorde will perform Swelt Belly at Dawn in Hong Kong on November 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert. This concert will also feature pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
 
 ## SEPTEMBER 2017:
 Composer and performer Benjamin Dwyer will present a piece I wrote with Peter Moran a number of years ago called Anois is Arís initially for psaltery and tape but Benjamin will perform it on the guitar. This takes place on the 28 September at the Ryogoku-Monten Hall, Tokyo, Japan. 
