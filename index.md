@@ -19,8 +19,22 @@ Over the past few years I have been working on several projects and pieces. Some
 ## NOVEMBER 2017:
 Concorde will perform Swelt Belly at Dawn in Hong Kong on November 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert. This concert will also feature pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
 
+## OCTOBER 2017:
+Release of my EP "The Ring Lieder - on poems by Roderick Ford". This will be available for purchase on my purchase page and through cdbaby, bandcamp etc...
+
+[Clang Sayne](http://www.clangsayne.com) continue our tour of Ireland at the following dates and locations: 
+05.10 Black Box, Belfast
+06.10 Happy Pear, Wicklow
+07.10 Parlour Tea Rooms, Waterford
+08.10 Wexford Arts Centre
+
 ## SEPTEMBER 2017:
 Composer and performer Benjamin Dwyer will present a piece I wrote with Peter Moran a number of years ago called Anois is Arís initially for psaltery and tape but Benjamin will perform it on the guitar. This takes place on the 28 September at the Ryogoku-Monten Hall, Tokyo, Japan. 
+
+[Clang Sayne](http://www.clangsayne.com) tour dates:
+27.09 Little Museum, Dublin
+28.09 Sofa Sessions, Kilkenny
+29.09 HWCH, Dublin
 
 ## JUNE 2017:
 
