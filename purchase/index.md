@@ -45,7 +45,7 @@ currently being updated....
 
 <div class="photo-with-credit">
   <img src="/assets/img/bythenewtime.jpg">
-</div>By the new time - compilation of electronic works compiled by Roger Doyle. Available for purchase from the [Contemporary Music Centre](https://www.cmc.ie/shop/new-time)
+</div>By the new time - compilation of electronic works compiled by Roger Doyle featuring my piece Accumulation. Available for purchase from the [Contemporary Music Centre](https://www.cmc.ie/shop/new-time)
 <br>
 <br>
 <br>
