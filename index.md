@@ -6,11 +6,11 @@ title: Judith Ring
 
 Over the past few years I have been working on several projects and pieces. Some big and some small. Here is a breakdown of work in progress and work ready for performance:
 
- - Cello Suite for Martin Johnson. I just received a bursary from the Arts Council to write music in collaboration with cellist Martin Johnson so we will be working together on a number of ideas this year. 
- - The Ring Lieder - on 4 poems by [Roderick Ford](http://roderickford.com): The Old Train, A Plate of Holes, Amber and The Sylph. I have almost finished recording these songs in [Arad Studio](https://www.facebook.com/Arad.studios/) with Leslie Keye and look forward to releasing them digitally in the next weeks. Myself on voice and piano, Adrian Hart on violin, Lisa Dowdall on viola and Kate Ellis on cello.  
+ - Cello Suite for Martin Johnson. I received a bursary from the Arts Council to write music in collaboration with cellist Martin Johnson so we will be working together on a number of ideas this year. 
+ - The Ring Lieder - on 4 poems by [Roderick Ford](http://roderickford.com): The Old Train, A Plate of Holes, Amber and The Sylph. I recorded these songs in [Arad Studio](https://www.facebook.com/Arad.studios/) with Leslie Keye and look forward to releasing them digitally in the next weeks. Myself on voice and piano, Adrian Hart on violin, Lisa Dowdall on viola and Kate Ellis on cello.  
  - SAY - 40 minute piece for 4 voices and electronics and based on a text by Michael Gallen. I have plans to finish and produce this by the end of 2017.
  - The Birthstar - Choir piece on a text by Laura Hyland. Ready to workshop and perform with a willing choir. Please contact me for more information. 
- - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare.
+ - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare. To be recorded this Winter by Silver Kites (myself, Fionnuala Conway and Lenka Dobai)
  - Mirror Moth - piano piece. Almost complete. 
  
  
