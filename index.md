@@ -22,6 +22,8 @@ Concorde will perform Swelt Belly at Dawn in Hong Kong on November 4th at the Sa
 ## OCTOBER 2017:
 Release of my EP "The Ring Lieder - on poems by Roderick Ford". This will be available for purchase on my purchase page and through cdbaby, bandcamp etc...
 
+Concorde will perform Swelt Belly at Dawn as part of their Hugh Lane Museum concert at noon on the 8th Oct alongside pieces by Linda Buckley and others.
+
 [Clang Sayne](http://www.clangsayne.com) continue our tour of Ireland at the following dates and locations: 
 05.10 Black Box, Belfast
 06.10 Happy Pear, Wicklow
