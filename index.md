@@ -25,18 +25,18 @@ Release of my EP "The Ring Lieder - on poems by Roderick Ford". This will be ava
 Concorde will perform Swelt Belly at Dawn as part of their Hugh Lane Museum concert at noon on the 8th Oct alongside pieces by Linda Buckley and others.
 
 [Clang Sayne](http://www.clangsayne.com) continue our tour of Ireland at the following dates and locations: 
-05.10 Black Box, Belfast
-06.10 Happy Pear, Wicklow
-07.10 Parlour Tea Rooms, Waterford
-08.10 Wexford Arts Centre
+- 05.10 Black Box, Belfast
+- 06.10 Happy Pear, Wicklow
+- 07.10 Parlour Tea Rooms, Waterford
+- 08.10 Wexford Arts Centre
 
 ## SEPTEMBER 2017:
 Composer and performer Benjamin Dwyer will present a piece I wrote with Peter Moran a number of years ago called Anois is Arís initially for psaltery and tape but Benjamin will perform it on the guitar. This takes place on the 28 September at the Ryogoku-Monten Hall, Tokyo, Japan. 
 
 [Clang Sayne](http://www.clangsayne.com) tour dates:
-27.09 Little Museum, Dublin
-28.09 Sofa Sessions, Kilkenny
-29.09 HWCH, Dublin
+- 27.09 Little Museum, Dublin
+- 28.09 Sofa Sessions, Kilkenny
+- 29.09 HWCH, Dublin
 
 ## JUNE 2017:
 
