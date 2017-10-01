@@ -52,3 +52,8 @@ currently being updated....
 <br>
 <br>
 <br>
+<div class="photo-with-credit">
+  <img src="/assets/img/bythenewtime.jpg">
+  </div>Clang Sayne - The Round Sould Of The World - Currently based in Ireland, the group features Laura Hyland on voice and guitar, Judith Ring on voice and cello, Matthew Jacobson on drums and voice, and Carolyn Goodwin on bass clarinet and voice.
+  Clang Sayne was formed by Laura Hyland in London in 2008 to fuse myriad influences spanning folk song, sound art and literature into a soundworld she describes as 'songscape'. Reviewers have dubbed it an "an uncategorizable approach to songcraft" and "exhilarating in its refusal to conform".
+
