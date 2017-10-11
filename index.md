@@ -17,10 +17,12 @@ Over the past few years I have been working on several projects and pieces. Some
 # RECENT AND UPCOMING PERFORMANCES
 
 ## NOVEMBER 2017:
+Heading to Berlin for 3 weeks to write some new cello music for Martin Johnson on the 21st November.  
+
 Concorde will perform Swelt Belly at Dawn in Hong Kong on November 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert. This concert will also feature pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
 
 ## OCTOBER 2017:
-Release of my EP "The Ring Lieder - on poems by Roderick Ford". This will be available for purchase on my purchase page and through cdbaby, bandcamp etc...
+Release of my EP "The Ring Lieder - on poems by Roderick Ford". This will be available soon for purchase on my purchase page and through cdbaby, bandcamp etc...
 
 Concorde will perform Swelt Belly at Dawn as part of their Hugh Lane Museum concert at noon on the 8th Oct alongside pieces by Linda Buckley and others.
 
