@@ -4,7 +4,9 @@ currently being updated....
 
 <div class="photo-with-credit">
   <img src="/assets/img/theringlieder.jpg">
-</div>The Ring Lieder - on poems by Roderick Ford - available for purchase soon.
+</div>The Ring Lieder - on poems by [Roderick Ford](http://www.roderickford.com) - available for purchase soon.
+
+View the poems [here](poems):
 <br>
 <br>
 <br>
