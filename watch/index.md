@@ -2,15 +2,23 @@
 title: Watch
 ---
 
+SWELT BELLY AT DAWN <br>
+Performed in Chicago by Access Contemporary Music as part of their Global Connections concert. 
 
-FLUX – jeux de bague
+<center><iframe src="https://player.vimeo.com/video/170958106" width="640" height="360" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
+<p><a href="https://vimeo.com/170958106">Global Connections: Ireland - &quot;Swelt Belly At Dawn&quot; - Judith Ring</a> from <a href="https://vimeo.com/acmusic">ACM</a> on <a href="https://vimeo.com">Vimeo</a>.</p></center>
+
+<br>
+<br>
+FLUX – jeux de bague <br>
 Video piece featuring my piece Flux – jeux de bague. A collaboration with Nathalie Forget on Ondes Martenot.
 
 <iframe class="video" src="https://player.vimeo.com/video/46124614" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
 <p><a href="https://vimeo.com/46124614">Coeur, Nathalie Forget, ondes Martenot, ondea and visual arts</a> from <a href="https://vimeo.com/user12595275">Nat</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 
 
- 
+<br>
+<br>
 GONE
 – a video and sound installation project I made while on a residency at Akademie der Künste, Berlin’s Sommerakademie in 2003.
 
@@ -24,7 +32,8 @@ This piece was exhibited in Rüdersdorf at the end of my residency alongside sev
  
 
 
-
+<br>
+<br>
 
 
 INTERFERENCE FABRIK
