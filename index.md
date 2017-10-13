@@ -21,6 +21,8 @@ Heading to Berlin for 3 weeks to write some new cello music for Martin Johnson o
 
 Concorde will perform Swelt Belly at Dawn in Hong Kong on November 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert. This concert will also feature pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
 
+Hard Rain ensemble will perform Swelt Belly at Dawn at the Crescent Arts Centre, Belfast on November 2nd at 7.30pm. 
+
 ## OCTOBER 2017:
 Release of my EP "The Ring Lieder - on poems by Roderick Ford". This will be available soon for purchase on my purchase page and through cdbaby, bandcamp etc...
 
