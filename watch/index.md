@@ -5,8 +5,9 @@ title: Watch
 SWELT BELLY AT DAWN <br>
 Performed in Chicago by Access Contemporary Music as part of their Global Connections concert. 
 
-<center><iframe src="https://player.vimeo.com/video/170958106" width="640" height="360" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
-<p><a href="https://vimeo.com/170958106">Global Connections: Ireland - &quot;Swelt Belly At Dawn&quot; - Judith Ring</a> from <a href="https://vimeo.com/acmusic">ACM</a> on <a href="https://vimeo.com">Vimeo</a>.</p></center>
+
+<iframe class="video" src="https://player.vimeo.com/video/170958106" width="640" height="360" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
+<p><a href="https://vimeo.com/170958106">Global Connections: Ireland - &quot;Swelt Belly At Dawn&quot; - Judith Ring</a> from <a href="https://vimeo.com/acmusic">ACM</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 
 <br>
 <br>
