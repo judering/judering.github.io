@@ -21,4 +21,4 @@ My colleague Laura Hyland and I run an events company called Strike the Air. For
 
 After completing my PhD by composition at the University of York, UK in 2009 I returned to Ireland to re-establish myself on the Irish music scene. Since then I have expanded my musical output by writing for theatre (OFF PLAN by Simon Doyle), putting together a multidisciplinary festival called Sensorium with two colleagues of mine from York, Angie Atmadjaja and Emily Kalies (as The-Link-Project) and accompanying composer/songwriter Laura Hyland on vocals under the name Clang Sayne.
 
-For a list of works check out my [LIVE](/live) page or head to my [LISTEN](/listen)page to hear a selection of my work. To purchase cd's featuring my work check out my [PURCHASE](/purchase) page.
+For a list of works check out my [LIVE](/live) page or head to my [LISTEN](/listen) page to hear a selection of my work. To purchase cd's featuring my work check out my [PURCHASE](/purchase) page.
