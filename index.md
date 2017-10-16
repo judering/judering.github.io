@@ -4,6 +4,20 @@ title: Judith Ring
 
 # CURRENT PROJECTS AND PLANS
 
+## <center>ANNOUNCEMENT: EP release</center>
+<div class="photo-with-credit">
+  <img src="/assets/img/EP_Cover.jpg">
+</div>
+
+**The Ring Lieder** was released into the Ophelia storm on the 16th October 2017! 
+This is the culmination of a few years of working and re-working these songs until they were right! There are 4 songs in total and they are settings of Roderick Ford's poems The Old Train, Amber, The Sylph and A Plate of Holes. You can purchase these tracks in several ways on my [purchase] page!
+Thanks to Roderick for his beautiful poems, Leslie Keye for this studio mastery, Adrian Hart, Lisa Dowdall and Kate Ellis for their incredible string playing!! I hope you all enjoy listening!!
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 Over the past few years I have been working on several projects and pieces. Some big and some small. Here is a breakdown of work in progress and work ready for performance:
 
  - Cello Suite for Martin Johnson. I received a bursary from the Arts Council to write music in collaboration with cellist Martin Johnson so we will be working together on a number of ideas this year. 
