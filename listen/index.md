@@ -1,6 +1,10 @@
 ---
 title: Listen
 ---
+
+Listen to clips from my new EP - **The Ring Lieder** - on poems by Roderick Ford:
+<iframe name="mini" style="border:0px;width:100%;height:100px;" src="//widget.cdbaby.com/bbf9ebd3-f13f-4940-a747-b29cec437a64/mini/light/opaque"></iframe>
+
 My debut album "What was" is available on [ergodos](https://ergodos.ie/shop/records/what-was/) records. You can purchase it through their website. 
 
 Here is a track from the album for cello and tape performed on this recording by Kate Ellis:
