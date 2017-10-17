@@ -16,7 +16,8 @@ The Ring Lieder - on poems by [Roderick Ford](http://www.roderickford.com) - EP 
 </form>
 Available for digital download and CD here:
 <br> [Bandcamp](http://judithring.bandcamp.com/album/the-ring-lieder)
-
+<br> and for digital download here:
+<br>[cdbaby](https://store.cdbaby.com/cd/judithring)
 
 View the poems [here](poems) 
 </div>
