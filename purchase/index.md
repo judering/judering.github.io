@@ -18,7 +18,8 @@ Available for digital download and CD here:
 <br> [Bandcamp](http://judithring.bandcamp.com/album/the-ring-lieder)
 <br> and for digital download here:
 <br>[cdbaby](https://store.cdbaby.com/cd/judithring)
-
+<br>Listen to clips from my new EP - **The Ring Lieder** - on poems by Roderick Ford:
+<iframe name="mini" style="border:0px;width:100%;height:100px;" src="//widget.cdbaby.com/bbf9ebd3-f13f-4940-a747-b29cec437a64/mini/light/opaque"></iframe>
 View the poems [here](poems) 
 </div>
 <br>
