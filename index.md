@@ -8,14 +8,11 @@ title: Judith Ring
 <div class="photo-with-credit">
   <img src="/assets/img/EP_Cover.jpg">
 </div>
-
+<div markdown="1" style="display:table-cell">
 **The Ring Lieder** was released into the Ophelia storm on the 16th October 2017! 
 This is the culmination of a few years of working and re-working these songs until they were right! There are 4 songs in total and they are settings of [Roderick Ford's](http://www.roderickford.com) poems The Old Train, Amber, The Sylph and A Plate of Holes. You can purchase these tracks in several ways on my [purchase](/purchase) page!
 Thanks to Roderick for his beautiful poems which you can read [here](purchase/poems), Leslie Keye for this studio mastery, Adrian Hart, Lisa Dowdall and Kate Ellis for their incredible string playing!! I hope you all enjoy listening!!
-<br>
-<br>
-<br>
-<br>
+<iframe name="mini" style="border:0px;width:100%;height:100px;" src="//widget.cdbaby.com/bbf9ebd3-f13f-4940-a747-b29cec437a64/mini/light/opaque"></iframe></div>
 <br>
 <br>
 <br>
