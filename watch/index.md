@@ -18,6 +18,15 @@ Video piece featuring my piece Flux – jeux de bague. A collaboration with Nath
 <p><a href="https://vimeo.com/46124614">Coeur, Nathalie Forget, ondes Martenot, ondea and visual arts</a> from <a href="https://vimeo.com/user12595275">Nat</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 <br>
 <br>
+UP TO MY F-HOLES <br>
+Performed by Kate Ellis on cello and Rory Tangney drawing at Phonica night, Smock Alley Theatre 2017.   
+<br>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/5Ec_ncPyyIU?rel=0" frameborder="0" allowfullscreen></iframe></center>
+Composition for cello and electronics by Judith Ring.
+Phonica is a Dublin-based poetry and music venture with an emphasis on multiformity and the experimental. Curated and hosted by Christodoulos Makris and Olesya Zdorovetska, Phonica aims to provide an outlet for the exploration and presentation of new ideas, a space where practitioners from different artforms can converse, and an environment conducive to collaborative enterprise and improvisation.
+<br>
+<br>
+<br>
 PLEASE REMAIN SEATED choreography by Anna Melander, music by Judith Ring
 <br>
 <br>
