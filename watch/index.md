@@ -24,7 +24,9 @@ PLEASE REMAIN SEATED choreography by Anna Melander, music by Judith Ring
 <center>
   <iframe width="560" height="315" src="https://www.youtube.com/embed/vR_6831tVd4?rel=0" frameborder="0" allowfullscreen></iframe>
 <p></p></center>
-A collaboration with composer. Judith Ring Choreography Anna Melander. A city or village is a living organism with it's own intricate rythm. We are all part of the organism called society.
+A collaboration with composer. Judith Ring Choreography Anna Melander. A city or village is a living organism with it's own intricate rythm. We are all part of the organism called society. <br>
+You can listen to the original music here:
+<iframe width="100%" height="20" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/45648136&amp;color=%23ffb800&amp;inverse=false&amp;auto_play=false&amp;show_user=true"></iframe>
 <br>
 <br>
 <br>
@@ -37,6 +39,8 @@ LOST AGAIN choreography by Anna Melander, music by Judith Ring
 <p></p></center>
 A collaboration with the composer Judith Ring dancers Anna Melander and Sarah Callow
 <br>
+You can listen to the original music here:
+<iframe width="100%" height="20" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/45648135&amp;color=%23ffb800&amp;inverse=false&amp;auto_play=false&amp;show_user=true"></iframe>
 <br>
 <br>
 <br>
