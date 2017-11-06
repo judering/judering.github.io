@@ -16,7 +16,8 @@ Video piece featuring my piece Flux – jeux de bague. A collaboration with Nath
 
 <iframe class="video" src="https://player.vimeo.com/video/46124614" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
 <p><a href="https://vimeo.com/46124614">Coeur, Nathalie Forget, ondes Martenot, ondea and visual arts</a> from <a href="https://vimeo.com/user12595275">Nat</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
-
+<br>
+<br>
 PLEASE REMAIN SEATED choreography by Anna Melander, music by Judith Ring
 <br>
 <br>
