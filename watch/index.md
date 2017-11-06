@@ -17,7 +17,28 @@ Video piece featuring my piece Flux – jeux de bague. A collaboration with Nath
 <iframe class="video" src="https://player.vimeo.com/video/46124614" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
 <p><a href="https://vimeo.com/46124614">Coeur, Nathalie Forget, ondes Martenot, ondea and visual arts</a> from <a href="https://vimeo.com/user12595275">Nat</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 
-
+PLEASE REMAIN SEATED choreography by Anna Melander, music by Judith Ring
+<br>
+<br>
+<center>
+  <iframe width="560" height="315" src="https://www.youtube.com/embed/vR_6831tVd4?rel=0" frameborder="0" allowfullscreen></iframe>
+<p></p></center>
+A collaboration with composer. Judith Ring Choreography Anna Melander. A city or village is a living organism with it's own intricate rythm. We are all part of the organism called society.
+<br>
+<br>
+<br>
+<br>
+LOST AGAIN choreography by Anna Melander, music by Judith Ring
+<br>
+<br>
+<center>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f44dVWK7ep0?rel=0" frameborder="0" allowfullscreen></iframe>
+<p></p></center>
+A collaboration with the composer Judith Ring dancers Anna Melander and Sarah Callow
+<br>
+<br>
+<br>
+<br>
 <br>
 <br>
 GONE
