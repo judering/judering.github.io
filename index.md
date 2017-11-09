@@ -40,10 +40,10 @@ Touring with [Clang Sayne](http://www.clangsayne.com) on the 16th, 17th and 18th
 ## NOVEMBER 2017:
 Heading to Berlin for 3 weeks to write some new cello music for Martin Johnson on the 21st November.  
 
-Concorde performed Swelt Belly at Dawn in Hong Kong on  
-Nov. 1 - St. Paul’s College (workshop presentation to about 50 students and staff - secondary schools)
-Nov. 2 - Lutheran Academy (workshop presentation to about 60 students and staff - secondary school)
-Nov. 3 - Education University - performance for 100 students
+Concorde performed Swelt Belly at Dawn in Hong Kong on <br>  
+Nov. 1 - St. Paul’s College (workshop presentation to about 50 students and staff - secondary schools) <br>
+Nov. 2 - Lutheran Academy (workshop presentation to about 60 students and staff - secondary school) <br>
+Nov. 3 - Education University - performance for 100 students <br>
 Nov. 4 - Sai Wan Ho Civic Centre (Theatre), Hong Kong, 7pm pre-concert talk, 8pm concert. This concert also featured pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
 
 Hard Rain ensemble will perform Swelt Belly at Dawn at the Crescent Arts Centre, Belfast on November 2nd at 7.30pm. 
