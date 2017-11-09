@@ -28,10 +28,23 @@ Over the past few years I have been working on several projects and pieces. Some
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## SEPTEMBER 2018:
+Concorde will perform my piece ...within and egg of space... at Susa Festival in Denmark on the 1st September.
+
+## MARCH 2018: 
+Concorde will perform my piece ...within and egg of space... at New Music Dublin at the lunchtime concert on the 3rd March.
+
+## DECEMBER 2017:
+Touring with [Clang Sayne](http://www.clangsayne.com) on the 16th, 17th and 18th December. More news to follow. 
+
 ## NOVEMBER 2017:
 Heading to Berlin for 3 weeks to write some new cello music for Martin Johnson on the 21st November.  
 
-Concorde will perform Swelt Belly at Dawn in Hong Kong on November 4th at the Sai Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert. This concert will also feature pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
+Concorde performed Swelt Belly at Dawn in Hong Kong on  
+Nov. 1 - St. Paul’s College (workshop presentation to about 50 students and staff - secondary schools)
+Nov. 2 - Lutheran Academy (workshop presentation to about 60 students and staff - secondary school)
+Nov. 3 - Education University - performance for 100 students
+Nov. 4 - Sai Wan Ho Civic Centre (Theatre), Hong Kong, 7pm pre-concert talk, 8pm concert. This concert also featured pieces by Irish composers Jane O'Leary (director of Concorde), Linda Buckley, Ed Bennett and David Fennessy.
 
 Hard Rain ensemble will perform Swelt Belly at Dawn at the Crescent Arts Centre, Belfast on November 2nd at 7.30pm. 
 
