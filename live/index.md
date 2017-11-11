@@ -4,11 +4,14 @@ title: Performances
 # PERFORMANCES (by piece):
 
 ## Swells and Shoots (2016) for Adele and Martin Johnson - viola and cello.
+- Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, Sep 22nd 2017 as part of Culture Night. 
 - Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, June 24th 2017.
-- Performed at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
+- Performed by Martin and Adele Johnson at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
 
 ## Swelt Belly At Dawn (2013) for Concorde. Piece for trio – clarinet, violin and cello.
-- Concorde - Hong Kong, November 4 at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert
+- Hard Rain Ensemble - perform at International Woman's day at the Crescent Arts Centre, Belfast on Wed 8th March 2018.
+- Concorde - Hong Kong, November 1st,2nd,3rd, and 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert
+- Hard Rain Ensemble - Crescent Arts centre, Belfast on the 2nd November, 7.30pm.
 - Crash ensemble perform "Swelt Belly at Dawn" on 17th April: Concert 1: Dublin Castle at 14:40; Concert 2: Civic Theatre, Tallaght at 20:15
 - Sepia ensemble, Poland perform "Swelt Belly at Dawn" at the 46. INTERNATIONAL POZNAŃ MUSIC SPRING FESTIVAL 2017. 4th April / 19:00 / Aula Nova, Plac Stefana Stuligrosza 1 
 - Crash ensemble perform "Swelt Belly at Dawn" as part of International Woman's Day, 8th March, at the National Concert Hall, Dublin.
@@ -61,6 +64,8 @@ Commissioned by Concorde with funds from the Arts Council.
  
 ## …within an egg of space… (2009), for sextet and tape: 
 Commissioned by Concorde ensemble with funds from the Arts Council.
+- Concorde at Susa Festival Denmark on September 1st, 2018
+- Concorde at New Music Dublin on March 3rd, 2018
 - Concorde for their 40th anniversary concert on the 18th September, 2017, Hugh Lane Gallery.
 - Concorde ensemble – Hugh Lane Gallery, 22nd November 2009
 - Concorde ensemble – National Gallery of Ireland, 7th June 2009
@@ -194,14 +199,15 @@ Hall, 5th December, 2009.
 exhibition in Gdansk, Poland. (2004)
  
 ## CDs:
-1. What Was – Judith Ring – Ergodos records – first complete cd of works (2014)
-2. Reflections – Concorde CD (2010) – featuring …within an egg of space… 
-3. Dubh – Trio Scordatura CD – released on Ergodos records (2010) – “hush…”
-4. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.9 (2010) – “…within an egg of space…” performed by Concorde.
-5. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.4. (2004) – “phorM” (extract)
-6. THE MUSIC BOARD OF IRELAND – “Nocan” – A collection of contemporary Irish music and film (2004).
-7. BY THE NEW TIME – “Accumulation” Compilation of Irish electro-acoustic music compiled by Roger Doyle. (2001)
-8. 22ND LUIGI RUSSOLO PRIZE – “Accumulation” (2000)
+1. The Ring Lieder - on poems by Roderick Ford. - EP of 4 songs. 
+2. What Was – Judith Ring – Ergodos records – first complete cd of works (2014)
+3. Reflections – Concorde CD (2010) – featuring …within an egg of space… 
+4. Dubh – Trio Scordatura CD – released on Ergodos records (2010) – “hush…”
+5. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.9 (2010) – “…within an egg of space…” performed by Concorde.
+6. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.4. (2004) – “phorM” (extract)
+7. THE MUSIC BOARD OF IRELAND – “Nocan” – A collection of contemporary Irish music and film (2004).
+8. BY THE NEW TIME – “Accumulation” Compilation of Irish electro-acoustic music compiled by Roger Doyle. (2001)
+9. 22ND LUIGI RUSSOLO PRIZE – “Accumulation” (2000)
  
 ## FILM MUSIC:
 - TIME AND AGAIN – Director: Barry Dowling. (2000)

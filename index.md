@@ -32,6 +32,8 @@ Over the past few years I have been working on several projects and pieces. Some
 Concorde will perform my piece ...within and egg of space... at Susa Festival in Denmark on the 1st September.
 
 ## MARCH 2018: 
+Hard Rain Ensemble will perform "Swelt Belly at Dawn" at International Woman's day at the Crescent Arts Centre, Belfast on Wed 8th March 2018
+
 Concorde will perform my piece ...within and egg of space... at New Music Dublin at the lunchtime concert on the 3rd March.
 
 ## DECEMBER 2017:
@@ -41,7 +43,7 @@ Touring with [Clang Sayne](http://www.clangsayne.com) on the 16th, 17th and 18th
 Heading to Berlin for 3 weeks to write some new cello music for Martin Johnson on the 21st November.  
 
 Concorde performed Swelt Belly at Dawn in Hong Kong on:
- 
+
 Nov. 1 - St. Paul’s College (workshop presentation to about 50 students and staff - secondary schools) <br>
 Nov. 2 - Lutheran Academy (workshop presentation to about 60 students and staff - secondary school) <br>
 Nov. 3 - Education University - performance for 100 students <br>
@@ -62,6 +64,8 @@ Concorde will perform Swelt Belly at Dawn as part of their Hugh Lane Museum conc
 
 ## SEPTEMBER 2017:
 Composer and performer Benjamin Dwyer will present a piece I wrote with Peter Moran a number of years ago called Anois is Arís initially for psaltery and tape but Benjamin will perform it on the guitar. This takes place on the 28 September at the Ryogoku-Monten Hall, Tokyo, Japan. 
+
+Kate Ellis and Lisa Dowdall perform Swells and Shoots for Culture Night at The Ark, Temple Bar, Sep 22nd 2017.
 
 [Clang Sayne](http://www.clangsayne.com) tour dates:
 - 27.09 Little Museum, Dublin
