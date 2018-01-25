@@ -34,6 +34,8 @@ Concorde will perform my piece ...within and egg of space... at Susa Festival in
 ## MARCH 2018: 
 Hard Rain Ensemble will perform "Swelt Belly at Dawn" at International Woman's day at the Crescent Arts Centre, Belfast on Wed 8th March 2018
 
+Performing new songs commissioned by [Ergodos](www.ergodos.ie) with vocal trio Silver Kites (Fionnuala Conway, Lenka Dobai and myself) as part of The Secret Music Trial at the New Music Dublin Festival on the morning of Sunday 4th March. More info here [New Music Dublin](www.newmusicdublin.ie)
+
 Concorde will perform my piece ...within and egg of space... at New Music Dublin at the lunchtime concert on the 3rd March.
 
 ## DECEMBER 2017:
