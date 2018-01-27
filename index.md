@@ -38,6 +38,9 @@ Performing new songs commissioned by [Ergodos](www.ergodos.ie) with vocal trio S
 
 Concorde will perform my piece ...within and egg of space... at New Music Dublin at the lunchtime concert on the 3rd March.
 
+## JANUARY 2018:
+Nathalie Forget performs my piece FLUX for Ondes Martenot and Tape at the Royal Liverpool Philharmonic, UK on the 26 Jan, 2018. 8pm. 
+
 ## DECEMBER 2017:
 Touring with [Clang Sayne](http://www.clangsayne.com) on the 16th, 17th and 18th December. More news to follow. 
 

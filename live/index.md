@@ -29,6 +29,7 @@ title: Performances
 - RHA, Ely Place, Dublin, 20th January 2013. Two performances.
 
 ## FLUX – jeux de bague (2012) for Ondes Martenot and tape. Written for and in collaboration with Nathalie Forget.
+- Nathalie Forget at the Royal Liverpool Philharmonic, 26th Jan 2018.
 - Nathalie Forget performs Flux for Ondes Martenot and tape as part of Les Conversatoires #5 on March 23rd, 2017 at 21.00 at Le Triton, 11 bis rue du coq français, 93260 Les Lilas
 - 21st of June at Lilas en Scène.
 - 14th of June, 19h, at Longeval, domaine culturel à Saint Just d’Avray, France.
