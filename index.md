@@ -23,7 +23,7 @@ Over the past few years I have been working on several projects and pieces. Some
  - Cello Suite for Martin Johnson. I received a bursary from the Arts Council to write music in collaboration with cellist Martin Johnson so we will be working together on a number of ideas this year.  
  - SAY - 40 minute piece for 4 voices and electronics and based on a text by Michael Gallen. I have plans to finish and produce this by the end of 2017.
  - The Birthstar - Choir piece on a text by Laura Hyland. Ready to workshop and perform with a willing choir. Please contact me for more information. 
- - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare. To be recorded this Winter by Silver Kites (myself, Fionnuala Conway and Lenka Dobai)
+ - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare. To be recorded this Winter by Silver Kites.
  - Mirror Moth - piano piece. Almost complete. 
  
  
