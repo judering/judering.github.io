@@ -33,6 +33,9 @@ Over the past few years I have been working on several projects and pieces. Some
 Concorde will perform my piece ...within and egg of space... at Susa Festival in Denmark on the 1st September.
 
 ## APRIL 2018: 
+
+Silver Kites vocal trio (Lenka Dobai, Fionnuala Conway and myself) perform at "Listen at Arthurs", Arthur's pub, Thomas street, Dublin on the 11th April, 20.00.
+
 Silver Kites vocal trio will perform some of our new songs as the support act to Seán Mac Erlaine's album launch at Project Arts Centre, Dublin on the 6th April, 2018 at 19.30. 
 
 ## MARCH 2018: 
@@ -40,7 +43,7 @@ Kate Ellis will perform "Up to my f-foles" in Clonmel on the 10th March as part 
 
 Hard Rain Ensemble will perform "Swelt Belly at Dawn" at International Woman's day at the Crescent Arts Centre, Belfast on Wed 8th March 2018
 
-Performing new songs commissioned by [Ergodos](http://www.ergodos.ie) with vocal trio Silver Kites (Fionnuala Conway, Lenka Dobai and myself) as part of The Secret Music Trial at the New Music Dublin Festival on the morning of Sunday 4th March. More info here [New Music Dublin](http://www.newmusicdublin.ie)
+Performing new songs commissioned by [Ergodos](http://www.ergodos.ie) with vocal trio Silver Kites (Lenka Dobai, Fionnuala Conway, and myself) as part of The Secret Music Trial at the New Music Dublin Festival on the morning of Sunday 4th March. More info here [New Music Dublin](http://www.newmusicdublin.ie)
 
 Concorde will perform my piece ...within and egg of space... at New Music Dublin at the lunchtime concert on the 3rd March.
 
