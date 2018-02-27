@@ -34,6 +34,8 @@ Concorde will perform my piece ...within and egg of space... at Susa Festival in
 
 ## APRIL 2018: 
 
+Performing Bach's Mass in B Minor as a Tenor in the [Guinness choir](http://www.guinnesschoir.org) on the 16th April, 2018 at the National Concert Hall.
+
 Silver Kites vocal trio (Lenka Dobai, Fionnuala Conway and myself) perform at "Listen at Arthurs", Arthur's pub, Thomas street, Dublin on the 11th April, 20.00.
 
 Silver Kites vocal trio will perform some of our new songs as the support act to Seán Mac Erlaine's album launch at Project Arts Centre, Dublin on the 6th April, 2018 at 19.30. 
