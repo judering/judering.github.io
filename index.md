@@ -32,6 +32,10 @@ Over the past few years I have been working on several projects and pieces. Some
 ## SEPTEMBER 2018:
 Concorde will perform my piece ...within and egg of space... at Susa Festival in Denmark on the 1st September.
 
+## AUGUST 2018:
+
+I will be a featured composer at the chamber music festival on Valentia island which takes place from the 16th-19th August. [more details here](http://www.chambermusiconvalentia.com)
+
 ## APRIL 2018: 
 
 Performing Bach's Mass in B Minor as a Tenor in the [Guinness choir](http://www.guinnesschoir.org) on the 16th April, 2018 at the National Concert Hall.
