@@ -42,6 +42,8 @@ Performing Bach's Mass in B Minor as a Tenor in the [Guinness choir](http://www.
 
 Silver Kites vocal trio (Lenka Dobai, Fionnuala Conway and myself) perform at "Listen at Arthurs", Arthur's pub, Thomas street, Dublin on the 11th April, 20.00.
 
+Crash Ensemble will perform my "Up to my f-holes" for cello and tape as part of The Hugh Lane at noon concert series on the 8th April, 2018.
+
 Silver Kites vocal trio will perform some of our new songs as the support act to Seán Mac Erlaine's album launch at Project Arts Centre, Dublin on the 6th April, 2018 at 19.30. 
 
 ## MARCH 2018: 
