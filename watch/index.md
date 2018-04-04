@@ -12,9 +12,9 @@ Performed in Chicago by Access Contemporary Music as part of their Global Connec
 <br>
 <br>
 
-WITHIN AN EGG OF SPACE
+WITHIN AN EGG OF SPACE <br>
 Performed by Concorde at the Hugh Lane Gallery. The performance took place on 18 September 2016 as part of Concorde's 40th birthday concert celebration.
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tTUrjk6NRsk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/tTUrjk6NRsk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe></center>
 <br>
 <br>
 
