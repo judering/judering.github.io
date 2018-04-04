@@ -151,13 +151,6 @@ Crash ensemble will perform “Swelt Belly at Dawn” on Saturday 24th as part o
 
 Performance of “Within an Egg of Space” by Concorde for their 40th anniversary concert on the 18th September at the Hugh Lane Gallery, Dublin.
 
-PRAISE FOR ‘WHAT WAS':
-Top 100 albums of the year in the Sunday Times Culture magazine (Dec 7th) featured my album ‘What Was’ as no.9 in the Contemporary Music albums of the year! Delighted to make the grade!
-‘What Was” was also mentioned by the music critic of the New Yorker, Alex Ross on his blog The Rest is Noise.
-
-ALBUM RELEASE: My debut album What Was has been released on Ergodos records. Funded by a Recording Scheme grant from Music Network. For more details please visit www.ergodos.ie
-
-
 ## JUNE 2016:
 
 Panoval for piano, violin and tape – performed by Joseph Houston and Aisha Orazbayeva at the Lutheran Hall, Adelaide road as part of an AIC concert called Modern Classics.
@@ -190,6 +183,13 @@ Michelle O’Rourke performs Mouthpiece for voice and tape on the 19th at Birmin
 ## DECEMBER 2014:
 
 ‘FLUX – jeux de bague’ will be performed by Cécile Lartigau, on the 5th December in Paris. Audition of Ondes Martenot Class. Ondes and tape concert. Paris National Superior Conservatory CNSMDP, Salle Vinteuil 19h30
+
+## OCTOBER 2014:
+PRAISE FOR ‘WHAT WAS':
+Top 100 albums of the year in the Sunday Times Culture magazine (Dec 7th) featured my album ‘What Was’ as no.9 in the Contemporary Music albums of the year! Delighted to make the grade!
+‘What Was” was also mentioned by the music critic of the New Yorker, Alex Ross on his blog The Rest is Noise.
+
+ALBUM RELEASE: My debut album What Was has been released on Ergodos records. Funded by a Recording Scheme grant from Music Network. For more details please visit [www.ergodos.ie](https://ergodos.ie/shop/releases/what-was/)
 
 ## SEPTEMBER 2014:
 

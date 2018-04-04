@@ -11,6 +11,13 @@ Performed in Chicago by Access Contemporary Music as part of their Global Connec
 
 <br>
 <br>
+
+WITHIN AN EGG OF SPACE
+Performed by Concorde at the Hugh Lane Gallery. The performance took place on 18 September 2016 as part of Concorde's 40th birthday concert celebration.
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tTUrjk6NRsk" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<br>
+<br>
+
 FLUX – jeux de bague <br>
 Video piece featuring my piece Flux – jeux de bague. A collaboration with Nathalie Forget on Ondes Martenot.
 
