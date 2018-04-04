@@ -37,12 +37,14 @@ Phonica is a Dublin-based poetry and music venture with an emphasis on multiform
 TO PULL AN EERIE TWIST - VIDEO BY BENEDICT SCHLEPPER CONNOLLY <BR>
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/78xgBhb81t0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe></center>
 <br>
+Documentary film by Benedict Schlepper-Connolly for the Journal of Music on the writing of "To Pull an Eerie Twist", 2011.
 <br>
 
 WHAT WAS - ALBUM PROMO VIDEO<br>
 Filmed and edited by Laura Sheeran for Ergodos records.
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/VWPkBAO3TuU" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe></center>
 <br>
+A promotional film for my debut album What Was on Ergodos records.
 <br>
 
 PLEASE REMAIN SEATED choreography by Anna Melander, music by Judith Ring
