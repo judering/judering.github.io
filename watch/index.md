@@ -34,6 +34,17 @@ Phonica is a Dublin-based poetry and music venture with an emphasis on multiform
 <br>
 <br>
 <br>
+TO PULL AN EERIE TWIST - VIDEO BY BENEDICT SCHLEPPER CONNOLLY <BR>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/78xgBhb81t0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe></center>
+<br>
+<br>
+
+WHAT WAS - ALBUM PROMO VIDEO<br>
+Filmed and edited by Laura Sheeran for Ergodos records.
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/VWPkBAO3TuU" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe></center>
+<br>
+<br>
+
 PLEASE REMAIN SEATED choreography by Anna Melander, music by Judith Ring
 <br>
 <br>
