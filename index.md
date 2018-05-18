@@ -36,6 +36,17 @@ Concorde will perform my piece ...within and egg of space... at Susa Festival in
 
 I will be a featured composer at the chamber music festival on Valentia island which takes place from the 16th-19th August. [more details here](http://www.chambermusiconvalentia.com)
 
+Going on a short Irish tour with Clang Sayne performing some of our new work. Details to follow....
+
+## JULY 2018:
+Performing with Clang Sayne in Swansea, Stroud and Bristol. More info to follow....
+
+## JUNE 2018:
+Heading down to Wexford for a rehearsal week with Clang Sayne. We will be developing some new material by Laura Hyland for performance later in the year.
+
+## MAY 2018:
+Silver Kites vocal trio (Lenka Dobai, Fionnuala Conway and myself) are performing as part of a double bill with RedivideR at Ergodos HQ in Portobello at 8pm, 16th May 2018. We'll be performing works by myself and Fionnuala as well as some Slovakian folk songs. 
+
 ## APRIL 2018: 
 
 Performing Bach's Mass in B Minor as a Tenor in the [Guinness choir](http://www.guinnesschoir.org) on the 16th April, 2018 at the National Concert Hall.
