@@ -24,7 +24,7 @@ Over the past few years I have been working on several projects and pieces. Some
  - SAY - 40 minute piece for 4 voices and electronics and based on a text by Michael Gallen. I have plans to finish and produce this by the end of 2017.
  - The Birthstar - Choir piece on a text by Laura Hyland. Ready to workshop and perform with a willing choir. Please contact me for more information. 
  - Ave Maria - three-part choral piece written on a self-imposed residency in Rosslare. To be recorded this Winter by Silver Kites.
- - Mirror Moth - piano piece. Almost complete. 
+ - Dusting the Moth - piano piece. Almost complete. 
  
  
 # RECENT AND UPCOMING PERFORMANCES
@@ -35,6 +35,7 @@ Concorde will perform my piece ...within and egg of space... at Susa Festival in
 ## AUGUST 2018:
 
 I will be a featured composer at the chamber music festival on Valentia island which takes place from the 16th-19th August. [more details here](http://www.chambermusiconvalentia.com)
+Mary Dullea will premiere my new piano piece "Dusting the Moth".
 
 Going on a short Irish tour with Clang Sayne performing some of our new work. Details to follow....
 
@@ -42,6 +43,9 @@ Going on a short Irish tour with Clang Sayne performing some of our new work. De
 Performing with Clang Sayne in Swansea, Stroud and Bristol. More info to follow....
 
 ## JUNE 2018:
+
+Kate Ellis will perform "Up to my f-holes" for cello and tape at [Union Chapel, Uk](https://www.unionchapel.org.uk/event/daylight-music-286/) at Daylight Music 286. Saturday 30th June at 12 noon. 
+
 Heading down to Wexford for a rehearsal week with Clang Sayne. We will be developing some new material by Laura Hyland for performance later in the year.
 
 ## MAY 2018:
