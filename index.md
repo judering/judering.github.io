@@ -29,18 +29,40 @@ Over the past few years I have been working on several projects and pieces. Some
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## NOVEMBER 2018
+Performing with Clang Sayne in Brussels and Cologne (more details to follow). 22nd and 23rd November.
+
+Performing as part of Silver Kites at a Note Productions gig in Fumbally Stables (more details to be confirmed) November 1st
+
+I'll be doing a live set at Phonica, Smock Alley Theatre, November 12th. 
+
 ## SEPTEMBER 2018:
+
+23rd Sep - I will be performing some of my new songs for vocal trio Silver Kites (myself, Fionnula Conway and Lenka Dobai) as part of the Ergodos Music Trail for New Music Dublin - defrosted. 
+
+22nd Sep - Concorde will perform ...within an egg of space... at the National Concert Hall lunchtime concert as part of the New Music Dublin - defrosted weekend. 
+
 Concorde will perform my piece ...within and egg of space... at Susa Festival in Denmark on the 1st September.
 
 ## AUGUST 2018:
 
-I will be a featured composer at the chamber music festival on Valentia island which takes place from the 16th-19th August. [more details here](http://www.chambermusiconvalentia.com)
-Mary Dullea will premiere my new piano piece "Dusting the Moth".
+I will be a featured composer at the chamber music festival on Valentia island which takes place from the 17th-19th August. [more details here](http://www.chambermusiconvalentia.com)
+Mary Dullea will premiere my new piano piece "Dusting the Moth" on Friday 17th.
+There will be a family concert on Saturday afternoon at which I'll perform one of the songs of my EP "The Ring Lieder" and later that day I will perform a live, improvised 20 minute vocal set. 
 
-Going on a short Irish tour with Clang Sayne performing some of our new work. Details to follow....
+Going on a short Irish tour with Clang Sayne performing some of our new work. 
+8th @ Wexford Arts Centre
+9th @ Waterford (more details to follow)
+10th @ Sirius Arts Centre, Cobh
+11th @ Sherkin Island (more details to follow)
+12th @ Levis, Ballydehob
+13th @ Ergodos HQ, Portobello, Dublin
 
 ## JULY 2018:
-Performing with Clang Sayne in Swansea, Stroud and Bristol. More info to follow....
+Performing with Clang Sayne in Swansea, Stroud and Bristol.
+24th @ BBC hall, Swansea
+25th @ The Prince Albert, Stroud
+26th @ Cafe Kino, Bristol
 
 ## JUNE 2018:
 
