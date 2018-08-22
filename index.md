@@ -51,12 +51,12 @@ Mary Dullea will premiere my new piano piece "Dusting the Moth" on Friday 17th.
 There will be a family concert on Saturday afternoon at which I'll perform one of the songs of my EP "The Ring Lieder" and later that day I will perform a live, improvised 20 minute vocal set. 
 
 Going on a short Irish tour with Clang Sayne performing some of our new work. 
-8th @ Wexford Arts Centre
-9th @ Waterford (more details to follow)
-10th @ Sirius Arts Centre, Cobh
-11th @ Sherkin Island (more details to follow)
-12th @ Levis, Ballydehob
-13th @ Ergodos HQ, Portobello, Dublin
+- 8th @ Wexford Arts Centre
+- 9th @ Waterford, St. Patrick's Gateway
+- 10th @ Sirius Arts Centre, Cobh
+- 11th @ Sherkin Island, North Shore hostel
+- 12th @ Levis, Ballydehob
+- 13th @ Ergodos HQ, Portobello, Dublin
 
 ## JULY 2018:
 Performing with Clang Sayne in Swansea, Stroud and Bristol.
