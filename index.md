@@ -15,8 +15,7 @@ Thanks to Roderick for his beautiful poems which you can read [here](purchase/po
 <iframe name="mini" style="border:0px;width:100%;height:100px;" src="//widget.cdbaby.com/bbf9ebd3-f13f-4940-a747-b29cec437a64/mini/light/opaque"></iframe></div>
 <br>
 <br>
-<br>
-<br>
+
 
  
  
