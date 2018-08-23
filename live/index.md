@@ -31,6 +31,9 @@ title: Performances
 - Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
 - Silver Kites - Note productions - Fumbally Stables - 1st November 2018
 
+## Amber (2017) - voice, piano and string trio
+- performed as solo voice and piano by myself at the Lighthouse, Valentia, 18th August 2018
+
 ## Swells and Shoots (2016) for Adele and Martin Johnson - viola and cello.
 - Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, Sep 22nd 2017 as part of Culture Night. 
 - Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, June 24th 2017.
@@ -93,8 +96,8 @@ Commissioned by Concorde with funds from the Arts Council.
  
 ## …within an egg of space… (2009), for sextet and tape: 
 Commissioned by Concorde ensemble with funds from the Arts Council.
+- Concorde at New Music Dublin on September 22nd, 2018
 - Concorde at Susa Festival Denmark on September 1st, 2018
-- Concorde at New Music Dublin on March 3rd, 2018
 - Concorde for their 40th anniversary concert on the 18th September, 2017, Hugh Lane Gallery.
 - Concorde ensemble – Hugh Lane Gallery, 22nd November 2009
 - Concorde ensemble – National Gallery of Ireland, 7th June 2009
@@ -114,6 +117,8 @@ Postgraduate commission from the University of York.
 May 2008
  
 ## Up to my f-holes (2008), for cello and tape:
+- Kate Ellis performs "Up to my f-holes" for cello and tape at Union Chapel, London, UK as part of Daylight Music 286 on the 30th June, 2018.
+- Kate Ellis performs "Up to my f-holes" for cell and tape at the Hugh Lane Gallery as part of a Crash ensemble concert at noon. 8th April, 2018.
 - Kate Ellis performs "Up to my f-holes" for cello and tape with live drawing by Rory Tangney at Phonica in Smock Alley on the 24th April 2017.
 - Kate Ellis performs "Up to my f-holes" for cello and tape as part of the Spike Cello Festival at the Hugh Lane gallery at noon on the 12th February 2017 [www.spikecellofest.com](http://www.spikecellofest.com)
 - Kate Ellis performed “Up to my f-holes” for cello and tape in Galway, May 2015.
