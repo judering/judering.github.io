@@ -3,6 +3,34 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Dusting the Moth (2018) for Mary Dullea - solo piano
+- Mary Dullea premiered this piece at Glanleam House, Valentia island as part of the Chamber Music on Valentia festival 17th August 2018.
+
+## The Black Stone Sinks Deeply (2018) for Silver Kites - vocal trio 
+- Silver Kites supporting Seán Mac Erlaine's album launch at Project Arts centre 6th April 2018
+- Silver Kites at Listen at Arthurs 11th April 2018
+- Silver Kites double bill with Redivider at Ergodos HQ, Portobello 16th Mary 2018
+- Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
+- Silver Kites - Note productions - Fumbally Stables - 1st November 2018
+
+## Echoes Faintly Shimmer in the Dust (2018) for Silver Kites - vocal trio
+- Silver Kites supporting Seán Mac Erlaine's album launch at Project Arts centre 6th April 2018
+- Silver Kites at Listen at Arthurs 11th April 2018
+- Silver Kites double bill with Redivider at Ergodos HQ, Portobello 16th Mary 2018
+- Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
+- Silver Kites - Note productions - Fumbally Stables - 1st November 2018
+
+## Light Casts a Beam Across the Water (2018) for Silver Kites - vocal Trio
+- Silver Kites supporting Seán Mac Erlaine's album launch at Project Arts centre 6th April 2018
+- Silver Kites at Listen at Arthurs 11th April 2018
+- Silver Kites double bill with Redivider at Ergodos HQ, Portobello 16th Mary 2018
+- Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
+- Silver Kites - Note productions - Fumbally Stables - 1st November 2018
+
+## Prelude for a Baum (2018) for Silver Kites - vocal trio
+- Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
+- Silver Kites - Note productions - Fumbally Stables - 1st November 2018
+
 ## Swells and Shoots (2016) for Adele and Martin Johnson - viola and cello.
 - Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, Sep 22nd 2017 as part of Culture Night. 
 - Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, June 24th 2017.
