@@ -24,7 +24,7 @@ Thanks to Roderick for his beautiful poems which you can read [here](purchase/po
 ## NOVEMBER 2018
 Performing with Clang Sayne in Brussels and Cologne (more details to follow). 22nd and 23rd November.
 
-Performing as part of Silver Kites at a Note Productions gig in Fumbally Stables (more details to be confirmed) November 1st
+Performing with Silver Kites in collaboration with cellist Erik Friedlander as part of his DUO series (Note Productions) gigs in Fumbally Stables November 1st. http://www.note.ie/htm/series/2018/erik-friedlander-nov-1st.htm
 
 I'll be doing a live set at Phonica, Smock Alley Theatre, November 12th. 
 
