@@ -29,6 +29,13 @@ Heading to Denmark to do a small tour with Clang Sayne on the 25th February. Mor
 
 Silver Kites (myself, Fionnuala Conway and Lenka Dobai) will be performing at this years Bottlenote Festival on the 24th February. More details to follow.
 
+Martin Johnson will be performing my new set of 5 cello pieces "Wildwood" at a private St. Brigid's day celebration. 
+
+## JANUARY 2019
+Countersunk release a double CD of electronic tracks by 22 Irish producers (including me) under the collective name 101 beats per minute. Launch party will be held at Whelans, Dublin, on the 25th Jan from 8pm onwards. 
+
+Benjamin Dwyer launches his CD/DVD "KnowingUnknowing" featuring a piece I co-composed with Peter Moran "Anois is Arís" at Middlesex University on the 17th Jan and again in Dublin at Dance Ireland on the 25th Jan at 6pm. 
+
 ## NOVEMBER 2018
 Performing with Clang Sayne in Brussels and Cologne (more details to follow). 22nd and 23rd November.
 
