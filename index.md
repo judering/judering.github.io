@@ -25,9 +25,9 @@ Thanks to Roderick for his beautiful poems which you can read [here](purchase/po
 Crash ensemble/Kate Ellis will perform Up to my f-holes for cello and tape at The MAC, Belfast on the 14th March as part of the Belfast Music Society Night Music Series.
 
 ## FEBRUARY 2019
-Heading to Denmark to do a small tour with Clang Sayne on the 25th February. More details to follow.
+Heading to Denmark to do a small tour with Clang Sayne on the 25th February. 
 
-Silver Kites (myself, Fionnuala Conway and Lenka Dobai) will be performing at this years Bottlenote Festival on the 24th February. More details to follow.
+Silver Kites (myself, Fionnuala Conway and Lenka Dobai) will be performing at this years Bottlenote Festival on the 24th February. 
 
 Martin Johnson will be performing my new set of 5 cello pieces "Wildwood" at a private St. Brigid's day celebration. 
 

@@ -233,15 +233,17 @@ Hall, 5th December, 2009.
 exhibition in Gdansk, Poland. (2004)
  
 ## CDs:
-1. The Ring Lieder - on poems by Roderick Ford. - EP of 4 songs. 
-2. What Was – Judith Ring – Ergodos records – first complete cd of works (2014)
-3. Reflections – Concorde CD (2010) – featuring …within an egg of space… 
-4. Dubh – Trio Scordatura CD – released on Ergodos records (2010) – “hush…”
-5. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.9 (2010) – “…within an egg of space…” performed by Concorde.
-6. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.4. (2004) – “phorM” (extract)
-7. THE MUSIC BOARD OF IRELAND – “Nocan” – A collection of contemporary Irish music and film (2004).
-8. BY THE NEW TIME – “Accumulation” Compilation of Irish electro-acoustic music compiled by Roger Doyle. (2001)
-9. 22ND LUIGI RUSSOLO PRIZE – “Accumulation” (2000)
+1. KnowingUnknowing - Benjamin Dwyer CD features a collaborative piece by myself and Peter Moran Anois 's Arís. (2019)
+2. 101 Beats Per Minute - features an electronic piece of mine written especially for this release. (2019)
+3. The Ring Lieder - on poems by Roderick Ford. - EP of 4 songs. (2017)
+4. What Was – Judith Ring – Ergodos records – first complete cd of works (2014)
+5. Reflections – Concorde CD (2010) – featuring …within an egg of space… 
+6. Dubh – Trio Scordatura CD – released on Ergodos records (2010) – “hush…”
+7. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.9 (2010) – “…within an egg of space…” performed by Concorde.
+8. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.4. (2004) – “phorM” (extract)
+9. THE MUSIC BOARD OF IRELAND – “Nocan” – A collection of contemporary Irish music and film (2004).
+10. BY THE NEW TIME – “Accumulation” Compilation of Irish electro-acoustic music compiled by Roger Doyle. (2001)
+11. 22ND LUIGI RUSSOLO PRIZE – “Accumulation” (2000)
  
 ## FILM MUSIC:
 - TIME AND AGAIN – Director: Barry Dowling. (2000)
