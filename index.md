@@ -27,7 +27,7 @@ Thanks to Roderick for his beautiful poems which you can read [here](purchase/po
 # RECENT AND UPCOMING PERFORMANCES
 
 ## APRIL 2019
-Malachy Robinson will perform an old piece of mine for double bass and electronics at an ICC gig in Studio 10, Wicklow Street, Dublin on the 18th April at 7pm alongside pieces by Sebastian Adams, Paul Scully, Richard Hughes, Daniel Reid and Kevin Free. 
+Malachy Robinson will perform an old piece of mine "Fusion" for double bass and electronics at an ICC gig in Studio 10, Wicklow Street, Dublin on the 18th April at 7pm alongside pieces by Sebastian Adams, Paul Scully, Richard Hughes, Daniel Reid and Kevin Free. 
 
 ## MARCH 2019
 Crash ensemble/Kate Ellis will perform Up to my f-holes for cello and tape at The MAC, Belfast on the 14th March as part of the Belfast Music Society Night Music Series.
