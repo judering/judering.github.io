@@ -3,15 +3,19 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Wildwood (2018) for Martin Johnson - cello solo
+- Martin Johnson performed this suite of cello pieces at a St. Brigid's day celebration at the Contemporary Music Centre, Dublin.
+
 ## Dusting the Moth (2018) for Mary Dullea - solo piano
 - Mary Dullea premiered this piece at Glanleam House, Valentia island as part of the Chamber Music on Valentia festival 17th August 2018.
 
 ## The Black Stone Sinks Deeply (2018) for Silver Kites - vocal trio 
 - Silver Kites supporting Seán Mac Erlaine's album launch at Project Arts centre 6th April 2018
 - Silver Kites at Listen at Arthurs 11th April 2018
-- Silver Kites double bill with Redivider at Ergodos HQ, Portobello 16th Mary 2018
+- Silver Kites double bill with Redivider at Ergodos HQ, Portobello 16th May 2018
 - Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
 - Silver Kites - Note productions - Fumbally Stables - 1st November 2018
+- Silver Kites - Bottlenote festival - Studio 10 - 24th February 2019
 
 ## Echoes Faintly Shimmer in the Dust (2018) for Silver Kites - vocal trio
 - Silver Kites supporting Seán Mac Erlaine's album launch at Project Arts centre 6th April 2018
@@ -19,6 +23,7 @@ title: Performances
 - Silver Kites double bill with Redivider at Ergodos HQ, Portobello 16th Mary 2018
 - Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
 - Silver Kites - Note productions - Fumbally Stables - 1st November 2018
+- Silver Kites - Bottlenote festival - Studio 10 - 24th February 2019
 
 ## Light Casts a Beam Across the Water (2018) for Silver Kites - vocal Trio
 - Silver Kites supporting Seán Mac Erlaine's album launch at Project Arts centre 6th April 2018
@@ -26,6 +31,7 @@ title: Performances
 - Silver Kites double bill with Redivider at Ergodos HQ, Portobello 16th Mary 2018
 - Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
 - Silver Kites - Note productions - Fumbally Stables - 1st November 2018
+- Silver Kites - Bottlenote festival - Studio 10 - 24th February 2019
 
 ## Prelude for a Baum (2018) for Silver Kites - vocal trio
 - Silver Kites - Ergodos music trail as part of New Music Dublin, NCH, 23rd September 2018
@@ -117,6 +123,7 @@ Postgraduate commission from the University of York.
 May 2008
  
 ## Up to my f-holes (2008), for cello and tape:
+- Kate Ellis performs "Up to my f-holes" for cello and tape at The MAC, Belfast, on the 14th March 2019 as part of Belfast Music Society Night Music Series. 
 - Kate Ellis performs "Up to my f-holes" for cello and tape at Union Chapel, London, UK as part of Daylight Music 286 on the 30th June, 2018.
 - Kate Ellis performs "Up to my f-holes" for cell and tape at the Hugh Lane Gallery as part of a Crash ensemble concert at noon. 8th April, 2018.
 - Kate Ellis performs "Up to my f-holes" for cello and tape with live drawing by Rory Tangney at Phonica in Smock Alley on the 24th April 2017.
@@ -197,6 +204,7 @@ Hall, 5th December, 2009.
 2003
  
 ## Fusion (2003), for double bass and tape:
+- Malachy Robinson (double bass), ICC concert at Studio 10, Wicklow street on 18th April 2019. 
 - Malachy Robinson (double bass), Composers choice series curated by the Whispering Gallery, NCH 2003
  
 ## Interference (2002), for voice and tape:
@@ -213,6 +221,7 @@ Hall, 5th December, 2009.
 - Dance Theatre of Irelands show Prism
  
 ## CONGESTION (2001), for tape:
+- Sections of this piece were re-worked to be included in Clare Langan's video art piece "13 Storms" 2017
 - Dance Theatre of Irelands show Prism 2002
 - Whispering gallery noise festival 2001
  
@@ -245,7 +254,9 @@ exhibition in Gdansk, Poland. (2004)
 10. BY THE NEW TIME – “Accumulation” Compilation of Irish electro-acoustic music compiled by Roger Doyle. (2001)
 11. 22ND LUIGI RUSSOLO PRIZE – “Accumulation” (2000)
  
-## FILM MUSIC:
+## FILM and VIDEO ART MUSIC:
+- 13 STORMS - Director and creator Clare Langan (2017) - she used sections of my electronic piece "Congestion/Illusion" for parts of the film. 
+- GLASS HOUR - Director and creator Clare Langan (2001). Co-composed the music for this with Jürgen Simpson.
 - TIME AND AGAIN – Director: Barry Dowling. (2000)
 - NELL – Director: Diarmuid Goggins. (2001)
  
