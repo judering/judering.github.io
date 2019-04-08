@@ -16,10 +16,17 @@ Thanks to Roderick for his beautiful poems which you can read [here](purchase/po
 <br>
 <br>
 
+- Currently writing a piece for Kate Ellis for cello and electronics commissioned by Crash ensemble. This is due to be performed in May! Details TBC. 
+- I was awarded an Arts Council bursary to write a set of new pieces for flautist Lina Andonovska and a set of pieces for Lina and Matthew Jacobson for their flute and drums duo SLAPBANG. 
+- Writing new material for vocal trio Silver Kites of which I am a member. We hope to record an album this year. 
+
 
  
  
 # RECENT AND UPCOMING PERFORMANCES
+
+## APRIL 2019
+Malachy Robinson will perform an old piece of mine for double bass and electronics at an ICC gig in Studio 10, Wicklow Street, Dublin on the 18th April at 7pm alongside pieces by Sebastian Adams, Paul Scully, Richard Hughes, Daniel Reid and Kevin Free. 
 
 ## MARCH 2019
 Crash ensemble/Kate Ellis will perform Up to my f-holes for cello and tape at The MAC, Belfast on the 14th March as part of the Belfast Music Society Night Music Series.
