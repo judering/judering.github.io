@@ -26,6 +26,11 @@ Thanks to Roderick for his beautiful poems which you can read [here](purchase/po
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## MAY 2019
+Hugh Lane at noon, another Crash ensemble gig at which Kate Ellis will perform "Upbeat Furore" my new piece for cello and live electronics. 5th May at noon, Hugh Lane Gallery, Dublin 
+
+Kate Ellis will perform my new piece "Upbeat Furore" for cello and live electronics at a Crash ensemble gig at Birr Music Festival, Offaly. 3rd May, 20.00, Birr Theatre and Arts centre. 
+
 ## APRIL 2019
 Malachy Robinson will perform an old piece of mine "Fusion" for double bass and electronics at an ICC gig in Studio 10, Wicklow Street, Dublin on the 18th April at 7pm alongside pieces by Sebastian Adams, Paul Scully, Richard Hughes, Daniel Reid and Kevin Free. 
 
