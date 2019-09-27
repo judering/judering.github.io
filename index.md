@@ -26,6 +26,9 @@ Thanks to Roderick for his beautiful poems which you can read [here](purchase/po
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## NOVEMBER 2019
+"Dusting the Moth" for piano solo will be performed by Alex Raineri at [Brisbane Music Festival](https://brismusicfestival.com/3-mirage/) on the 27 November at 7.30pm
+
 ## MAY 2019
 Hugh Lane at noon, another Crash ensemble gig at which Kate Ellis will perform "Upbeat Furore" my new piece for cello and live electronics. 5th May at noon, Hugh Lane Gallery, Dublin 
 
