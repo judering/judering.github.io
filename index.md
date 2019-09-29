@@ -16,7 +16,6 @@ Thanks to Roderick for his beautiful poems which you can read [here](purchase/po
 <br>
 <br>
 
-- Currently writing a piece for Kate Ellis for cello and electronics commissioned by Crash ensemble. This is due to be performed in May! Details TBC. 
 - I was awarded an Arts Council bursary to write a set of new pieces for flautist Lina Andonovska and a set of pieces for Lina and Matthew Jacobson for their flute and drums duo SLAPBANG. 
 - Writing new material for vocal trio Silver Kites of which I am a member. We hope to record an album this year. 
 - Working on the completion of SAY, a mini-opera on a text by Michael Gallen. I hope to make this in to a screen-dance film.
