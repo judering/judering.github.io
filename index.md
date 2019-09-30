@@ -4,10 +4,7 @@ title: Judith Ring
 
 # CURRENT PROJECTS AND PLANS
 
-## <center>ANNOUNCEMENT: EP release</center>
-<div class="photo-with-credit">
-  <img src="/assets/img/EP_Cover.jpg">
-</div>
+
 
 - Currently lecturing in Composition and Instrumentation at Trinity College Dublin until December.
 - I was awarded an Arts Council bursary to write a set of new pieces for flautist Lina Andonovska and a set of pieces for Lina and Matthew Jacobson for their flute and drums duo SLAPBANG. 
