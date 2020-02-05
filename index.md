@@ -23,10 +23,14 @@ title: Judith Ring
 Performing with Silver Kites (vocal trio) at the Hugh Lane Gallery at noon, March 29th 2020
 
 ## FEBRUARY 2020
+"A Breath of Fresh Air" for flute, written for Lina Andonovska will be premiered at her album launch on Diatribe records at New Music Dublin on the 28th February 2020. 
+
 "My One's Bigger than Yours" will be performed by Kate Ellis (cello) and Caimin Gilmore (double bass) at Spike festival in Dublin, Saturday 8th Feb 2020 in Lost Lane, Dublin. More details [here](https://www.facebook.com/events/813789412417269/)
 
 ## NOVEMBER 2019
 "Dusting the Moth" for piano solo will be performed by Alex Raineri at [Brisbane Music Festival](https://brismusicfestival.com/3-mirage/) on the 27 November at 7.30pm
+
+"Upbeat Furore" for cello will be performed by Kate Ellis as part of a Crash ensemble concert at The Mermaid, Bray, Co. Wicklow on the 22nd November 2020. 
 
 ## MAY 2019
 Hugh Lane at noon, another Crash ensemble gig at which Kate Ellis will perform "Upbeat Furore" my new piece for cello and live electronics. 5th May at noon, Hugh Lane Gallery, Dublin 
