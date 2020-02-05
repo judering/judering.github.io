@@ -4,9 +4,11 @@ title: Performances
 # PERFORMANCES (by piece):
 
 ## Wildwood (2018) for Martin Johnson - cello solo
+- Martin Johnson - Hugh Lane Gallery, 20 September 2020
 - Martin Johnson performed this suite of cello pieces at a St. Brigid's day celebration at the Contemporary Music Centre, Dublin.
 
 ## Dusting the Moth (2018) for Mary Dullea - solo piano
+- performed by Alex Raineri at [Brisbane Music Festival](https://brismusicfestival.com/3-mirage/) on the 27 November at 7.30pm
 - Mary Dullea premiered this piece at Glanleam House, Valentia island as part of the Chamber Music on Valentia festival 17th August 2018.
 
 ## The Black Stone Sinks Deeply (2018) for Silver Kites - vocal trio 
