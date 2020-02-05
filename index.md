@@ -6,7 +6,7 @@ title: Judith Ring
 
 
 
-- Currently lecturing in Composition and Instrumentation at Trinity College Dublin until December.
+- Currently lecturing in Composition and Instrumentation at Trinity College Dublin.
 - I was awarded an Arts Council bursary to write a set of new pieces for flautist Lina Andonovska and a set of pieces for Lina and Matthew Jacobson for their flute and drums duo SLAPBANG. 
 - Writing new material for vocal trio Silver Kites of which I am a member. We hope to record an album this year. 
 - Working on the completion of SAY, a mini-opera on a text by Michael Gallen. I hope to make this in to a screen-dance film.
@@ -15,6 +15,15 @@ title: Judith Ring
  
  
 # RECENT AND UPCOMING PERFORMANCES
+
+## OCTOBER 2020
+"Fine Feathers Far Below the Blue Floor" will be performed by Concorde as part of Beethoven 2020 at the National Concert Hall Dublin on the 29th October. 
+
+## MARCH 2020
+Performing with Silver Kites (vocal trio) at the Hugh Lane Gallery at noon, March 29th 2020
+
+## FEBRUARY 2020
+"My One's Bigger than Yours" will be performed by Kate Ellis (cello) and Caimin Gilmore (double bass) at Spike festival in Dublin, Saturday 8th Feb 2020 in Lost Lane, Dublin. More details [here](https://www.facebook.com/events/813789412417269/)
 
 ## NOVEMBER 2019
 "Dusting the Moth" for piano solo will be performed by Alex Raineri at [Brisbane Music Festival](https://brismusicfestival.com/3-mirage/) on the 27 November at 7.30pm
