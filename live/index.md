@@ -3,6 +3,9 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## is it over yet? (2020) for Lina Andonovska - Flute duo
+- Lina Andonovska x 2 - written for the Music Network Butterfly Sessions as part of a response to the lockdown. We recorded this as a video broadcast with Lina dueting with herself. 
+
 ## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
 - Lina Andonovska - New Music Dublin 2020 - 28th February at Lina Andonovska's album launch on Diatribe Records.
 

@@ -2,11 +2,12 @@
 title: Judith Ring
 ---
 
-# CURRENT PROJECTS AND PLANS
+# CURRENT PROJECTS, NEWS AND PLANS
 
 
 - Composing a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2021.
 - Writing an orchestral piece for the National Symphony Orchestra as part of Composer Lab with the [Contemporary Music Centre](www.cmc.ie).
+- Collaborated with Lina Andonovska on a piece for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo).
 - Currently lecturing in Composition and Instrumentation at Trinity College Dublin.
 - I was awarded an Arts Council bursary to write a set of new pieces for flautist Lina Andonovska and a set of pieces for Lina and Matthew Jacobson for their flute and drums duo SLAPBANG. 
 - Writing new material for vocal trio Silver Kites of which I am a member. We hope to record an album this year. 
