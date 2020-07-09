@@ -3,9 +3,17 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
+- Lina Andonovska - New Music Dublin 2020 - 28th February at Lina Andonovska's album launch on Diatribe Records.
+
 ## Wildwood (2018) for Martin Johnson - cello solo
 - Martin Johnson - Hugh Lane Gallery, 20 September 2020
 - Martin Johnson performed this suite of cello pieces at a St. Brigid's day celebration at the Contemporary Music Centre, Dublin.
+
+## Upbeat Furore (2019) for Kate Ellis - cello solo
+- Kate Ellis - performance at The Mermaid, Bray, Co. Wicklow, 22nd November 2019
+- Kate Ellis - performance at Hugh Lane Gallery, 5th May 2019
+- Kate Ellis - premiere performance at Birr Music Festival, Offaly, 3rd May, 2019
 
 ## Dusting the Moth (2018) for Mary Dullea - solo piano
 - performed by Alex Raineri at [Brisbane Music Festival](https://brismusicfestival.com/3-mirage/) on the 27 November at 7.30pm
@@ -93,6 +101,7 @@ Commissioned by Concorde with funds from the Arts Council.
 - Concorde featuring Garth Knox – Hugh Lane Gallery, 26th June 2011
  
 ## My One’s Bigger Than Yours (2011), for double bass, cello and tape:
+- Spike cello festival 2020 - performed by Kate Ellis and Caimin Gilmore on the 8th February. 
 - Kaleidoscope Night – 1st June 2011
 - Sensorium Festival – Project Arts Centre, Cube, 11th March 2011
  
@@ -125,6 +134,7 @@ Postgraduate commission from the University of York.
 May 2008
  
 ## Up to my f-holes (2008), for cello and tape:
+- Kate Ellis - University of Limerick - 30th January 2020
 - Kate Ellis performs "Up to my f-holes" for cello and tape at The MAC, Belfast, on the 14th March 2019 as part of Belfast Music Society Night Music Series. 
 - Kate Ellis performs "Up to my f-holes" for cello and tape at Union Chapel, London, UK as part of Daylight Music 286 on the 30th June, 2018.
 - Kate Ellis performs "Up to my f-holes" for cell and tape at the Hugh Lane Gallery as part of a Crash ensemble concert at noon. 8th April, 2018.

@@ -5,13 +5,15 @@ title: Judith Ring
 # CURRENT PROJECTS AND PLANS
 
 
-
+- Composing a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2021.
+- Writing an orchestral piece for the National Symphony Orchestra as part of Composer Lab with the [Contemporary Music Centre](www.cmc.ie).
 - Currently lecturing in Composition and Instrumentation at Trinity College Dublin.
 - I was awarded an Arts Council bursary to write a set of new pieces for flautist Lina Andonovska and a set of pieces for Lina and Matthew Jacobson for their flute and drums duo SLAPBANG. 
 - Writing new material for vocal trio Silver Kites of which I am a member. We hope to record an album this year. 
 - Working on the completion of SAY, a mini-opera on a text by Michael Gallen. I hope to make this in to a screen-dance film.
 
-
+# PODCAST APPEARANCE
+[Click here](https://www.cmc.ie/amplify/episode-23?fbclid=IwAR1yTkaISEj2c1RTysQbuoYwc-zGraPFNfA4bIaPtzrelcU6nhd8ZFmj4Bc) to listen back to a chat I had with Jonathan Grimes of the Contemporary Music Centre, Ireland. We talk about working during a pandemic and how my music has evolved over the last 20 odd years.
  
  
 # RECENT AND UPCOMING PERFORMANCES
@@ -36,7 +38,7 @@ Performing with Silver Kites (vocal trio) at the Hugh Lane Gallery at noon, Marc
 ## NOVEMBER 2019
 "Dusting the Moth" for piano solo will be performed by Alex Raineri at [Brisbane Music Festival](https://brismusicfestival.com/3-mirage/) on the 27 November at 7.30pm
 
-"Upbeat Furore" for cello will be performed by Kate Ellis as part of a Crash ensemble concert at The Mermaid, Bray, Co. Wicklow on the 22nd November 2020. 
+"Upbeat Furore" for cello will be performed by Kate Ellis as part of a Crash ensemble concert at The Mermaid, Bray, Co. Wicklow on the 22nd November 2019. 
 
 ## MAY 2019
 Hugh Lane at noon, another Crash ensemble gig at which Kate Ellis will perform "Upbeat Furore" my new piece for cello and live electronics. 5th May at noon, Hugh Lane Gallery, Dublin 
