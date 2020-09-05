@@ -1,18 +1,26 @@
 ---
 title: Watch
 ---
-IS IT OVER YET?
+IS IT OVER YET? <br>
 Written for and performed by Lina Andonovska and herself. Commissioned by Music Network for The Butterfly Sessions - a series of online performances in response to the COVID19 lockdown. 
 
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/L4R7pt3opXo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+<br>
+<br>
 
-VALENTIA ISLAND - solo vocal and loop station set I performed as part of my composer in residence at the Chamber Music on Valentia festival 2018.
+VALENTIA ISLAND <br>
+Solo vocal and loop station set I performed as part of my composer in residence at the Chamber Music on Valentia festival 2018.
 
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/nsr1ihrw7uo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+<br>
+<br>
 
-CASSANDRA VOICES CHRISTMAS GATHERING 2019 - solo vocal and loop station set.
+CASSANDRA VOICES CHRISTMAS GATHERING 2019 <br>
+Solo vocal and loop station set.
 
-<center><iframe width="560" height="315" src="https://www.youtube.com/embed/nsr1ihrw7uo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/oLRB0Yl5PeU" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+<br>
+<br>
 
 SWELT BELLY AT DAWN <br>
 Performed in Chicago by Access Contemporary Music as part of their Global Connections concert. 
