@@ -3,7 +3,7 @@
 
 
 <div class="photo-with-credit">
-  <img src="/assets/img/theringlieder.jpg">
+  <img src="/assets/img/theringlieder.jpg" width="180" height="180">
 </div>
 <div markdown="1" style="display:table-cell">
 The Ring Lieder - on poems by [Roderick Ford](http://www.roderickford.com) - EP available for purchase on CD here: 
@@ -25,7 +25,7 @@ View the poems [here](poems)
 <br>
 
 <div class="photo-with-credit">
-  <img src="/assets/img/whatwas.jpg">
+  <img src="/assets/img/whatwas.jpg" width="180" height="180">
 </div>What Was - my debut album on ergodos records can be purchased here: [ergodos](https://ergodos.ie/shop/releases/what-was/)
 <br>
 <br>
@@ -45,7 +45,7 @@ View the poems [here](poems)
 <br>
 
 <div class="photo-with-credit">
-  <img src="/assets/img/reflections.jpg">
+  <img src="/assets/img/reflections.jpg" width="180" height="180">
 </div>Reflections - Concorde ensemble cd featuring my piece "...within an egg of space..." Available for purchase from [Navona records](http://www.navonarecords.com/catalog/nv5835/)
 <br>
 <br>
@@ -55,7 +55,7 @@ View the poems [here](poems)
 <br>
 
 <div class="photo-with-credit">
-  <img src="/assets/img/dubh.jpg">
+  <img src="/assets/img/dubh.jpg" width="180" height="180">
 </div>Dubh - Trio Scordatura cd featuring my piece "hush" - available for purchase here: [ergodos](https://ergodos.ie/shop/releases/dubh/)
 <br>
 <br>
@@ -65,7 +65,7 @@ View the poems [here](poems)
 <br>
 
 <div class="photo-with-credit">
-  <img src="/assets/img/bythenewtime.jpg">
+  <img src="/assets/img/bythenewtime.jpg" width="180" height="180">
 </div>By the new time - compilation of electronic works compiled by Roger Doyle featuring my piece Accumulation. Available for purchase from the [Contemporary Music Centre](https://www.cmc.ie/shop/new-time)
 <br>
 <br>
@@ -74,7 +74,7 @@ View the poems [here](poems)
 <br>
 <br>
 <div class="photo-with-credit">
-  <img src="/assets/img/clangsayne.jpg">
+  <img src="/assets/img/clangsayne.jpg" width="180" height="180">
   </div>[Clang Sayne](http://www.clangsayne.com) - The Round Sould Of The World - Currently based in Ireland, the group features Laura Hyland on voice and guitar, Judith Ring on voice and cello, Matthew Jacobson on drums and voice, and Carolyn Goodwin on bass clarinet and voice. Purchase album here: [Clang Sayne](http://www.clangsayne.com/shop)
   
   Clang Sayne was formed by Laura Hyland in London in 2008 to fuse myriad influences spanning folk song, sound art and literature into a soundworld she describes as 'songscape'. Reviewers have dubbed it an "an uncategorizable approach to songcraft" and "exhilarating in its refusal to conform".
