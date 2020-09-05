@@ -21,8 +21,7 @@ Available for digital download and CD here:
 View the poems [here](poems) 
 </div>
 <br>
-<br>
-<br>
+
 
 <div class="photo-with-credit">
   <img src="/assets/img/whatwas.jpg" width="180" height="180">
@@ -33,10 +32,30 @@ View the poems [here](poems)
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+
 
 <div class="photo-with-credit">
   <img src="/assets/img/a_way_a_lone_a_last_small.jpg" width="180" height="180">
 </div> A Way A Lone A Last - Lina Andonovska - featuring my piece "A Breath of Fresh Air" - Available to purchase from [Diatribe records](http://shop.diatribe.ie/album/a-way-a-lone-a-last)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
+<div class="photo-with-credit">
+  <img src="/assets/img/101BPM.jpg" width="180" height="180">
+</div> 101 BPM - an anonymous collection of electronic tracks featuring a track of mine - Available to purchase from [Countersunk](https://countersunk.bandcamp.com/album/101-beats-per-minute)
+<br>
+<br>
+<br>
 <br>
 <br>
 <br>
@@ -53,6 +72,11 @@ View the poems [here](poems)
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+
+
 
 <div class="photo-with-credit">
   <img src="/assets/img/dubh.jpg" width="180" height="180">
@@ -63,6 +87,11 @@ View the poems [here](poems)
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+
+
 
 <div class="photo-with-credit">
   <img src="/assets/img/bythenewtime.jpg" width="180" height="180">
@@ -73,6 +102,12 @@ View the poems [here](poems)
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+
+
+
 <div class="photo-with-credit">
   <img src="/assets/img/clangsayne.jpg" width="180" height="180">
   </div>[Clang Sayne](http://www.clangsayne.com) - The Round Sould Of The World - Currently based in Ireland, the group features Laura Hyland on voice and guitar, Judith Ring on voice and cello, Matthew Jacobson on drums and voice, and Carolyn Goodwin on bass clarinet and voice. Purchase album here: [Clang Sayne](http://www.clangsayne.com/shop)
