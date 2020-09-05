@@ -6,6 +6,13 @@ Written for and performed by Lina Andonovska and herself. Commissioned by Music 
 
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/L4R7pt3opXo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
 
+VALENTIA ISLAND - solo vocal and loop station set I performed as part of my composer in residence at the Chamber Music on Valentia festival 2018.
+
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/nsr1ihrw7uo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+
+CASSANDRA VOICES CHRISTMAS GATHERING 2019 - solo vocal and loop station set.
+
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/nsr1ihrw7uo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
 
 SWELT BELLY AT DAWN <br>
 Performed in Chicago by Access Contemporary Music as part of their Global Connections concert. 
