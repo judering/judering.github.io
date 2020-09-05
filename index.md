@@ -22,6 +22,8 @@ title: Judith Ring
 ## OCTOBER 2020
 "Fine Feathers Far Below the Blue Floor" will be performed by Concorde as part of Beethoven 2020 at the National Concert Hall Dublin on the 29th October. (cancelled)
 
+Lina Andonovska will perform the solo flute piece I wrote for her "A Breath of Fresh Air" at the Hochschule in Frankfurt on the 20th October. More details to follow.
+
 Musik Fabrik will perform "Whispering the Turmoil Down" in NCH (8th) and in Cologne (5th) as part of the "After Beethoven" series (cancelled)
 
 ## SEPTEMBER 2020
