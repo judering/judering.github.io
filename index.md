@@ -30,7 +30,7 @@ Musik Fabrik will perform "Whispering the Turmoil Down" in NCH (8th) and in Colo
 "Wildwood" cello suite will be performed by Martin Johnson at the Hugh Lane Gallery at noon, 20th September 2020
 
 ## MARCH 2020
-Performing with Silver Kites (vocal trio) at the Hugh Lane Gallery at noon, March 29th 2020
+Performing with Silver Kites (vocal trio) at the Hugh Lane Gallery at noon, March 29th 2020 (cancelled)
 
 ## FEBRUARY 2020
 "A Breath of Fresh Air" for flute, written for Lina Andonovska will be premiered at her album launch on Diatribe records at New Music Dublin on the 28th February 2020. 
