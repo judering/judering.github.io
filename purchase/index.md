@@ -35,7 +35,7 @@ View the poems [here](poems)
 <br>
 
 <div class="photo-with-credit">
-  <img src="/assets/img/a_way_a_lone_a_last_small.jpg" width="200" height="200">
+  <img src="/assets/img/a_way_a_lone_a_last_small.jpg" width="180" height="180">
 </div> A Way A Lone A Last - Lina Andonovska - featuring my piece "A Breath of Fresh Air" - Available to purchase from [Diatribe records](http://shop.diatribe.ie/album/a-way-a-lone-a-last)
 <br>
 <br>
