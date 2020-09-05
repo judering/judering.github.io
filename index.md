@@ -4,7 +4,7 @@ title: Judith Ring
 
 # CURRENT PROJECTS, NEWS AND PLANS
 
-
+- Heading into the studio at the end of September to record my new EP "Wildwood" - a cello suite for solo cello - written for and performed by Martin Johnson. 
 - Composing a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2021.
 - Writing an orchestral piece for the National Symphony Orchestra as part of Composer Lab with the [Contemporary Music Centre](www.cmc.ie).
 - Collaborated with Lina Andonovska on a piece called "is it over yet?" for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo).

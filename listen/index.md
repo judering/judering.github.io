@@ -2,8 +2,8 @@
 title: Listen
 ---
 
-Listen to clips from my new EP - **The Ring Lieder** - on poems by Roderick Ford:
-<iframe name="mini" style="border:0px;width:100%;height:100px;" src="//widget.cdbaby.com/bbf9ebd3-f13f-4940-a747-b29cec437a64/mini/light/opaque"></iframe>
+Purchase or stream my EP - **The Ring Lieder** - on poems by Roderick Ford:
+<iframe style="border: 0; width: 100%; height: 42px;" src="https://bandcamp.com/EmbeddedPlayer/album=1050878833/size=small/bgcol=ffffff/linkcol=e99708/transparent=true/" seamless><a href="http://judithring.bandcamp.com/album/the-ring-lieder">The Ring Lieder by Judith Ring</a></iframe>
 
 My debut album "What was" is available on [ergodos](https://ergodos.ie/shop/records/what-was/) records. You can purchase it through their website. 
 

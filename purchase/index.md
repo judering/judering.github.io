@@ -16,10 +16,8 @@ The Ring Lieder - on poems by [Roderick Ford](http://www.roderickford.com) - EP 
 </form>
 Available for digital download and CD here:
 <br> [Bandcamp](http://judithring.bandcamp.com/album/the-ring-lieder)
-<br> and for digital download here:
-<br>[cdbaby](https://store.cdbaby.com/cd/judithring)
-<br>Listen to clips from my new EP - **The Ring Lieder** - on poems by Roderick Ford:
-<iframe name="mini" style="border:0px;width:100%;height:100px;" src="//widget.cdbaby.com/bbf9ebd3-f13f-4940-a747-b29cec437a64/mini/light/opaque"></iframe>
+
+
 View the poems [here](poems) 
 </div>
 <br>
@@ -29,6 +27,16 @@ View the poems [here](poems)
 <div class="photo-with-credit">
   <img src="/assets/img/whatwas.jpg">
 </div>What Was - my debut album on ergodos records can be purchased here: [ergodos](https://ergodos.ie/shop/releases/what-was/)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
+<div class="photo-with-credit">
+  <img src="/assets/img/a_way_a_lone_a_last.jpg">
+</div> A Way A Lone A Last - Lina Andonovska - featuring my piece "A Breath of Fresh Air" - Available to purchase from [Diatribe records](http://shop.diatribe.ie/album/a-way-a-lone-a-last)
 <br>
 <br>
 <br>
