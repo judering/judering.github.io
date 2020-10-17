@@ -26,7 +26,7 @@ Lina Andonovska will perform the solo flute piece I wrote for her "A Breath of F
 Musik Fabrik will perform "Whispering the Turmoil Down" in NCH (8th) and in Cologne (5th) as part of the "After Beethoven" series (cancelled)
 
 ## SEPTEMBER 2020
-"Wildwood" cello suite will be performed by Martin Johnson at the Hugh Lane Gallery at noon, 20th September 2020
+"Wildwood" cello suite will be performed by Martin Johnson at the Hugh Lane Gallery at noon, 20th September 2020 (Cancelled)
 
 ## MARCH 2020
 Performing with Silver Kites (vocal trio) at the Hugh Lane Gallery at noon, March 29th 2020 (cancelled)
