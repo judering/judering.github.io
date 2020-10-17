@@ -4,9 +4,8 @@ title: Judith Ring
 
 # CURRENT PROJECTS, NEWS AND PLANS
 
-- Heading into the studio at the end of September to record my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson. 
+- Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. Currently mixing and mastering it for release by Christmas! 
 - Composing a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2021.
-- Writing an orchestral piece for the National Symphony Orchestra as part of Composer Lab with the [Contemporary Music Centre](www.cmc.ie).
 - Collaborated with Lina Andonovska on a piece called "is it over yet?" for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo).
 - Currently lecturing in Composition and Instrumentation at Trinity College Dublin.
 - I was awarded an Arts Council bursary to write a set of new pieces for flautist Lina Andonovska and a set of pieces for Lina and Matthew Jacobson for their flute and drums duo SLAPBANG. 
@@ -22,7 +21,7 @@ title: Judith Ring
 ## OCTOBER 2020
 "Fine Feathers Far Below the Blue Floor" will be performed by Concorde as part of Beethoven 2020 at the National Concert Hall Dublin on the 29th October. (cancelled)
 
-Lina Andonovska will perform the solo flute piece I wrote for her "A Breath of Fresh Air" at the Hochschule in Frankfurt on the 20th October. More details to follow.
+Lina Andonovska will perform the solo flute piece I wrote for her "A Breath of Fresh Air" at the HfMDK in Frankfurt am Main on the 20th October at 6pm alongside pieces by Amanda Feery, Colm O'Hara, Donnacha Dennehy and Lucia Kilger.
 
 Musik Fabrik will perform "Whispering the Turmoil Down" in NCH (8th) and in Cologne (5th) as part of the "After Beethoven" series (cancelled)
 
