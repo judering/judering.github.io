@@ -4,7 +4,7 @@ title: Judith Ring
 
 # CURRENT PROJECTS, NEWS AND PLANS
 
-- Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. Currently mixing and mastering it for release by Christmas! 
+- Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. Currently mixing and mastering it for release in 2021!
 - Composing a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2021.
 - Collaborated with Lina Andonovska on a piece called "is it over yet?" for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo).
 - Currently lecturing in Composition and Instrumentation at Trinity College Dublin.
@@ -17,6 +17,13 @@ title: Judith Ring
  
  
 # RECENT AND UPCOMING PERFORMANCES
+
+## MAY 2021
+"Across the Empty Squares" for accordion and electronics will be premiered by Dermot Dunne at the Sligo International Chamber Music Festival on the 1st May. More details [here](https://www.sligointernationalchambermusicfestival.com)
+
+## APRIL 2021
+"Swelt Belly at Dawn" will be performed at New Music Dublin by Evlana. 23rd April at 2.30pm. Free to view online.
+[www.newmusicdublin.ie](https://www.newmusicdublin.ie)
 
 ## OCTOBER 2020
 "Fine Feathers Far Below the Blue Floor" will be performed by Concorde as part of Beethoven 2020 at the National Concert Hall Dublin on the 29th October. (cancelled)
