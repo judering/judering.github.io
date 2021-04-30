@@ -3,6 +3,9 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Across the Empty Squares (2021) for Dermot Dunne - Accordion and tape
+- Dermot Dunne - Commissioned by [Sligo International Chamber Music Festival](https://www.sligointernationalchambermusicfestival.com/online-concerts). Online concerts on May 1-3rd at 4pm. 
+
 ## is it over yet? (2020) for Lina Andonovska - Flute duo
 - Lina Andonovska x 2 - written for the Music Network Butterfly Sessions as part of a response to the lockdown. We recorded this as a video broadcast with Lina dueting with herself. 
 
@@ -59,6 +62,7 @@ title: Performances
 - Performed by Martin and Adele Johnson at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
 
 ## Swelt Belly At Dawn (2013) for Concorde. Piece for trio – clarinet, violin and cello.
+- Evlana ensemble - performed at New Music Dublin 2021. Friday 23rd April. Evlana concert 1. 
 - Hard Rain Ensemble - perform at International Woman's day at the Crescent Arts Centre, Belfast on Wed 8th March 2018.
 - Concorde - Hong Kong, November 1st,2nd,3rd, and 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert
 - Hard Rain Ensemble - Crescent Arts centre, Belfast on the 2nd November, 7.30pm.
