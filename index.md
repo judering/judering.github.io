@@ -4,15 +4,15 @@ title: Judith Ring
 
 # CURRENT PROJECTS, NEWS AND PLANS
 
+- Recently awarded a Bursary from the Arts Council to work on my solo performance compositions. Over the last years I have performed live improvised vocal and loop pedal sets at a number of events. This bursary will allow me to develop this into something more tangible and will include cello as well. The aim is to create a body of work to be able to perform live as a soloist and to release an album of work once it's developed. You can check out my [youtube](https://www.youtube.com/channel/UC1vVA69QkacFPkOPLdiILOQ) channel to see more.
 - Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. Currently mixing and mastering it for release in 2021!
-- Composing a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2021.
-- Collaborated with Lina Andonovska on a piece called "is it over yet?" for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo).
-- Currently lecturing in Composition and Instrumentation at Trinity College Dublin.
-- I was awarded an Arts Council bursary to write a set of new pieces for flautist Lina Andonovska and a set of pieces for Lina and Matthew Jacobson for their flute and drums duo SLAPBANG. 
-- Writing new material for vocal trio Silver Kites of which I am a member. We hope to record an album this year. 
+- Composing a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2021/2.
+- Collaborated with Lina Andonovska on a piece called "is it over yet?" for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo). 
 - Working on the completion of SAY, a mini-opera on a text by Michael Gallen. 
 
 # PODCAST APPEARANCE
+
+[Click here](https://www.cmc.ie/amplify/episode-40) listen back to a group chat for New Music Dublin 2021. We talk about the concerts and works that were performed.
 [Click here](https://www.cmc.ie/amplify/episode-23?fbclid=IwAR1yTkaISEj2c1RTysQbuoYwc-zGraPFNfA4bIaPtzrelcU6nhd8ZFmj4Bc) to listen back to a chat I had with Jonathan Grimes of the Contemporary Music Centre, Ireland. We talk about working during a pandemic and how my music has evolved over the last 20 odd years.
  
  
