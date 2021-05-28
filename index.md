@@ -10,9 +10,10 @@ title: Judith Ring
 - Collaborated with Lina Andonovska on a piece called "is it over yet?" for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo). 
 - Working on the completion of SAY, a mini-opera on a text by Michael Gallen. 
 
-# PODCAST APPEARANCE
+# PODCAST APPEARANCES
 
 [Click here](https://www.cmc.ie/amplify/episode-40) listen back to a group chat for New Music Dublin 2021. We talk about the concerts and works that were performed.
+
 [Click here](https://www.cmc.ie/amplify/episode-23?fbclid=IwAR1yTkaISEj2c1RTysQbuoYwc-zGraPFNfA4bIaPtzrelcU6nhd8ZFmj4Bc) to listen back to a chat I had with Jonathan Grimes of the Contemporary Music Centre, Ireland. We talk about working during a pandemic and how my music has evolved over the last 20 odd years.
  
  
