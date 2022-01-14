@@ -1,12 +1,14 @@
 ---
 title: Judith Ring
 ---
+# UPCOMING RELEASE
+WILDWOOD for solo cello will be released in February 2022 and features cellist Martin Johnson. This suite of 5 pieces takes you on a journey through the woods alone at dusk. It is a reflection on feelings of isolation, fear, awe and intrigue. 
 
 # CURRENT PROJECTS, NEWS AND PLANS
 
-- Recently awarded a Bursary from the Arts Council to work on my solo performance compositions. Over the last years I have performed live improvised vocal and loop pedal sets at a number of events. This bursary will allow me to develop this into something more tangible and will include cello as well. The aim is to create a body of work to be able to perform live as a soloist and to release an album of work once it's developed. You can check out my [youtube](https://www.youtube.com/channel/UC1vVA69QkacFPkOPLdiILOQ) channel to see more.
-- Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. Currently mixing and mastering it for release in 2021!
-- Composing a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2021/2.
+- Recently awarded a Bursary from the Arts Council to work on my solo performance compositions. Over the last years I have performed live improvised vocal and electronics sets at a number of events. This bursary will allow me to develop this into something more tangible. The aim is to create a body of work to be able to perform live as a soloist and to release an album of work once it's developed. You can check out my [youtube](https://www.youtube.com/channel/UC1vVA69QkacFPkOPLdiILOQ) channel to see more.
+- Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. Currently mixing and mastering it for release in 2022!
+- Composed a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2022.
 - Collaborated with Lina Andonovska on a piece called "is it over yet?" for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo). 
 - Working on the completion of SAY, a mini-opera on a text by Michael Gallen. 
 
