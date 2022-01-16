@@ -4,10 +4,6 @@ title: Judith Ring
 # UPCOMING RELEASE
 WILDWOOD for solo cello will be released in February 2022 and features cellist Martin Johnson. This suite of 5 pieces takes you on a journey through the woods alone at dusk. It is a reflection on feelings of isolation, fear, awe and intrigue. 
 
-<center><iframe width="560" height="315" src="https://www.youtube.com/watch?v=wm9DWWteCVY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
-<br>
-<br>
-
 # CURRENT PROJECTS, NEWS AND PLANS
 
 - Recently awarded a Bursary from the Arts Council to work on my solo performance compositions. Over the last years I have performed live improvised vocal and electronics sets at a number of events. This bursary will allow me to develop this into something more tangible. The aim is to create a body of work to be able to perform live as a soloist and to release an album of work once it's developed. You can check out my [youtube](https://www.youtube.com/channel/UC1vVA69QkacFPkOPLdiILOQ) channel to see more.
