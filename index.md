@@ -4,6 +4,7 @@ title: Judith Ring
 # UPCOMING RELEASE
 WILDWOOD for solo cello will be released in February 2022 and features cellist Martin Johnson. This suite of 5 pieces takes you on a journey through the woods alone at dusk. It is a reflection on feelings of isolation, fear, awe and intrigue. 
 
+
 # CURRENT PROJECTS, NEWS AND PLANS
 
 - Recently awarded a Bursary from the Arts Council to work on my solo performance compositions. Over the last years I have performed live improvised vocal and electronics sets at a number of events. This bursary will allow me to develop this into something more tangible. The aim is to create a body of work to be able to perform live as a soloist and to release an album of work once it's developed. You can check out my [youtube](https://www.youtube.com/channel/UC1vVA69QkacFPkOPLdiILOQ) channel to see more.
@@ -20,6 +21,9 @@ WILDWOOD for solo cello will be released in February 2022 and features cellist M
  
  
 # RECENT AND UPCOMING PERFORMANCES
+
+## FEBRUARY 2022
+WILDWOOD - Premiere public performance by Martin Johnson, solo cello at the Seamus Heaney Homeplace, The Helicon, Northern Ireland on the 17th February 2022.
 
 ## MAY 2021
 "Across the Empty Squares" for accordion and electronics will be premiered by Dermot Dunne at the Sligo International Chamber Music Festival on the 1st May. More details [here](https://www.sligointernationalchambermusicfestival.com)
