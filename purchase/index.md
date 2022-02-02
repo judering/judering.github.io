@@ -4,7 +4,7 @@
   <img src="/assets/img/Wildwood_cover.jpg" width="180" height="180">
 </div>
 <div markdown="1" style="display:table-cell">
-WILDWOOD - solo cello suite - performed by Martin Johnson. [Available for pre-order now](https://judithring.bandcamp.com). 
+WILDWOOD - solo cello suite - performed by Martin Johnson. [Available to order now](https://judithring.bandcamp.com). 
 </div>
 <br>
 <br>
