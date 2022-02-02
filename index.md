@@ -1,8 +1,8 @@
 ---
 title: Judith Ring
 ---
-# UPCOMING RELEASE - [click here to pre-order your copy on bandcamp](https://judithring.bandcamp.com)
-WILDWOOD for solo cello will be released on 02/02/2022 and features cellist Martin Johnson. This suite of 5 pieces takes you on a journey through the woods alone at dusk. It is a reflection on feelings of isolation, fear, awe and intrigue. 
+# NEW RELEASE - [click here to order your copy on bandcamp](https://judithring.bandcamp.com)
+WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5 pieces takes you on a journey through the woods alone at dusk. It is a reflection on feelings of isolation, fear, awe and intrigue. 
  
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/wm9DWWteCVY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
 
