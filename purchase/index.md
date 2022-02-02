@@ -4,13 +4,8 @@
   <img src="/assets/img/Wildwood_cover.jpg" width="180" height="180">
 </div>
 <div markdown="1" style="display:table-cell">
-WILDWOOD - solo cello suite - performed by Martin Johnson. [Available to order now](https://judithring.bandcamp.com). 
-</div>
-<br>
-<br>
-<br>
-<br>
-<br>
+WILDWOOD - solo cello suite - performed by Martin Johnson. [Click here to order on bandcamp now](https://judithring.bandcamp.com). 
+</div><iframe style="border: 0; width: 100%; height: 42px;" src="https://bandcamp.com/EmbeddedPlayer/album=1916284181/size=small/bgcol=ffffff/linkcol=2ebd35/transparent=true/" seamless><a href="https://judithring.bandcamp.com/album/wildwood">WILDWOOD by Judith Ring</a></iframe>
 <br>
 <br>
 <div class="photo-with-credit">
@@ -25,6 +20,8 @@ EP available for digital download and CD here:
 
 View the poems [here](poems) 
 </div>
+<iframe style="border: 0; width: 100%; height: 42px;" src="https://bandcamp.com/EmbeddedPlayer/album=1050878833/size=small/bgcol=ffffff/linkcol=63b2cc/transparent=true/" seamless><a href="https://judithring.bandcamp.com/album/the-ring-lieder">The Ring Lieder by Judith Ring</a></iframe>
+<br>
 <br>
 <br>
 
