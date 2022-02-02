@@ -17,16 +17,16 @@ WILDWOOD - solo cello suite - performed by Martin Johnson. [Available to order n
   <img src="/assets/img/theringlieder.jpg" width="180" height="180">
 </div>
 <div markdown="1" style="display:table-cell">
-The Ring Lieder - on poems by [Roderick Ford](http://www.roderickford.com) - EP available for purchase on CD here: 
+The Ring Lieder - on poems by [Roderick Ford](http://www.roderickford.com) - 
 
-Available for digital download and CD here:
+EP available for digital download and CD here:
 <br> [Bandcamp](http://judithring.bandcamp.com/album/the-ring-lieder)
 
 
 View the poems [here](poems) 
 </div>
 <br>
-
+<br>
 
 <div class="photo-with-credit">
   <img src="/assets/img/whatwas.jpg" width="180" height="180">
