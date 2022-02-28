@@ -3,6 +3,9 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Twilight (2018) - arranged by Malachy Robinson for double bass
+- Malachy Robinson - Hugh Lane Gallery, 27th February 2022.
+
 ## Across the Empty Squares (2021) for Dermot Dunne - Accordion and tape
 - Dermot Dunne - Commissioned by [Sligo International Chamber Music Festival](https://www.sligointernationalchambermusicfestival.com/online-concerts). Online concerts on May 1-3rd at 4pm. 
 
@@ -13,7 +16,8 @@ title: Performances
 - Lina Andonovska - New Music Dublin 2020 - 28th February at Lina Andonovska's album launch on Diatribe Records.
 
 ## Wildwood (2018) for Martin Johnson - cello solo
-- Martin Johnson - Hugh Lane Gallery, 20 September 2020
+- Martin Johnson - Premiere performance, Seamus Heaney Homeplace, 17th February 2022
+- Martin Johnson - Hugh Lane Gallery, 20 September 2020 (cancelled)
 - Martin Johnson performed this suite of cello pieces at a St. Brigid's day celebration at the Contemporary Music Centre, Dublin.
 
 ## Upbeat Furore (2019) for Kate Ellis - cello solo
