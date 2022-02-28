@@ -37,7 +37,15 @@ View the poems [here](poems)
 <br>
 <br>
 <br>
-
+<div class="photo-with-credit">
+  <img src="/assets/img/Malachy.jpg" width="180" height="180">
+</div> The Irish Double Bass - by Malachy Robinson - Featuring his arrangement of my piece "Twilight" - Available to purchase from [Bandcamp](https://malachyrobinson.bandcamp.com/album/the-irish-double-bass)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 
 <div class="photo-with-credit">
   <img src="/assets/img/a_way_a_lone_a_last_small.jpg" width="180" height="180">
