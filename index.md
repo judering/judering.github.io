@@ -44,6 +44,9 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 # RECENT AND UPCOMING PERFORMANCES
 
 ## FEBRUARY 2022
+
+"Twilight" - for double bass, arranged and performed by Malachy Robinson at the Hugh Lane Gallery on the 27th February at noon. 
+
 WILDWOOD - Premiere public performance by Martin Johnson, solo cello at the Seamus Heaney Homeplace, The Helicon, Northern Ireland on the 17th February 2022.
 
 ## MAY 2021
