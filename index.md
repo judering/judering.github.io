@@ -7,12 +7,12 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
  
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/wm9DWWteCVY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
 
-<center> 50% of all digital and physical sales will go to [hometree.ie](https://www.hometree.ie) - to establish and conserve permanent native woodland in Ireland, encouraging land regeneration and biodiversity through afforestation, restoration and education. </center>
+<center> 50% of all digital and physical sales will go to [www.hometree.ie](https://www.hometree.ie) - to establish and conserve permanent native woodland in Ireland, encouraging land regeneration and biodiversity through afforestation, restoration and education. </center>
 
 <br>
-<center><div class="photo-with-credit">
-  <img src="/assets/img/hometree logo background full.jpg">
-</div></center>
+<div class="photo-with-credit">
+  <center><img src="/assets/img/hometree logo background full.jpg"></center>
+</div>
 <br>
 <br>
 <br>
