@@ -31,6 +31,7 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 
 # CURRENT PROJECTS, NEWS AND PLANS
 
+- Currently writing an orchestral piece for the National Symphony Orchestra of Ireland as part of The Contemporary Music Centre's composer lab project. 
 - Recently awarded a Bursary from the Arts Council to work on my solo performance compositions. Over the last years I have performed live improvised vocal and electronics sets at a number of events. This bursary will allow me to develop this into something more tangible. The aim is to create a body of work to be able to perform live as a soloist and to release an album of work once it's developed. You can check out my [youtube](https://www.youtube.com/channel/UC1vVA69QkacFPkOPLdiILOQ) channel to see more.
 - Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. Currently mixing and mastering it for release in 2022!
 - Composed a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2022.
