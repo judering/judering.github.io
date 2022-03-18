@@ -6,27 +6,23 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 <br><center> "Excellent stuff...as always!" - Bernard Clarke - RTÉ's Blue of the Night on Lyric FM.</center>
  
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/wm9DWWteCVY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
-
-<center> 50% of all digital and physical sales will go to the charity "hometree" - to establish and conserve permanent native woodland in Ireland, encouraging land regeneration and biodiversity through afforestation, restoration and education. </center>
-
 <br>
+<center> 50% of all digital and physical sales will go to the charity "hometree" - to establish and conserve permanent native woodland in Ireland, encouraging land regeneration and biodiversity through afforestation, restoration and education. </center>
+<br>
+
 <center>
 <div class="photo-with-credit">
   <img src="/assets/img/hometree logo background full.jpg"> 
-</div>
-</center>
+</div> </center>
+<br>
+<br>
+<br>
+<br>
 <br>
 <br>
 <br>
 <br>
 [www.hometree.ie](https://www.hometree.ie)
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
