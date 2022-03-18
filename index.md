@@ -44,6 +44,14 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## JUNE 2022
+"Fine Feathers Far Below the Blue Floor" for violin, clarinet, piano and tape will be performed by Concorde at the National Concert Hall, Dublin in a concert curated by composer Jane O'Leary as part of the After Beethoven series. 15th June 2022, 19.30.
+
+"Whispering the Turmoil Down" for bass clarinet and tape. Performed by MusikFabrik at the National Concert Hall, Dublin in a concert curated by composer Ann Cleare as part of the After Beethoven series. 1st June 2022, 19.30.
+
+## APRIL 2022
+"Across the Empty Squares" for accordion and tape, will be performed by Dermot Dunne at the Sligo International Chamber Music Festival at the opening concert on the 30th April at 4pm at The Model, Sligo.
+
 ## FEBRUARY 2022
 
 "Twilight" - for double bass, arranged and performed by Malachy Robinson at the Hugh Lane Gallery on the 27th February at noon. 
