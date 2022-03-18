@@ -10,9 +10,11 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 <center> 50% of all digital and physical sales will go to [www.hometree.ie](https://www.hometree.ie) - to establish and conserve permanent native woodland in Ireland, encouraging land regeneration and biodiversity through afforestation, restoration and education. </center>
 
 <br>
+<center>
 <div class="photo-with-credit">
-  <center><img src="/assets/img/hometree logo background full.jpg"></center>
+  <img src="/assets/img/hometree logo background full.jpg"> 
 </div>
+</center>
 <br>
 <br>
 <br>
