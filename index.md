@@ -48,6 +48,9 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 
 "Whispering the Turmoil Down" for bass clarinet and tape. Performed by MusikFabrik at the National Concert Hall, Dublin in a concert curated by composer Ann Cleare as part of the After Beethoven series. 1st June 2022, 19.30.
 
+## MAY 2022
+"The Weaver" - world premiere! commissioned by The Guinness Choir with funding from the Arts Council. For SSAATB and piano on a poem by Diane Tierney. May 14th 2022 at St. Patrick's Cathedral.
+
 ## APRIL 2022
 "Across the Empty Squares" for accordion and tape, will be performed by Dermot Dunne at the Sligo International Chamber Music Festival at the opening concert on the 30th April at 4pm at The Model, Sligo.
 
@@ -67,7 +70,7 @@ WILDWOOD - Premiere public performance by Martin Johnson, solo cello at the Seam
 ## OCTOBER 2020
 "Fine Feathers Far Below the Blue Floor" will be performed by Concorde as part of Beethoven 2020 at the National Concert Hall Dublin on the 29th October. (cancelled)
 
-Lina Andonovska will perform the solo flute piece I wrote for her "A Breath of Fresh Air" at the HfMDK in Frankfurt am Main on the 20th October at 6pm alongside pieces by Amanda Feery, Colm O'Hara, Donnacha Dennehy and Lucia Kilger.
+Lina Andonovska will perform the solo flute piece I wrote for her "A Breath of Fresh Air" at the HfMDK in Frankfurt am Main on the 20th October at 6pm alongside pieces by Amanda Feery, Colm O'Hara, Donnacha Dennehy and Lucia Kilger. (cancelled)
 
 Musik Fabrik will perform "Whispering the Turmoil Down" in NCH (8th) and in Cologne (5th) as part of the "After Beethoven" series (cancelled)
 
