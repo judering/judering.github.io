@@ -27,10 +27,12 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 
 # CURRENT PROJECTS, NEWS AND PLANS
 
+- Commissioned by Music Network to write a piece for the cello and accordion duo Christian-Pierre La Marca and Félicien Brut for performance in November 2022. 
+- Commissioned by Larissa O'Grady to write a piece for violin and electronics with funds from the Arts Council
 - Commissioned by The Appalachian Chamber Music Festival to write a piece with a bluegrass slant to celebrate Irish folk roots in Appalachia. Sponsored by Berryville Graphics. World premiere will take place on the 18th August in Harpers Ferry, West Virginia, USA.
 - Currently writing an orchestral piece for the National Symphony Orchestra of Ireland as part of The Contemporary Music Centre's composer lab project. 
 - Working on the completion of vocal and electronics album for release by the end of the year. The material for the album was funded by an Arts Council Bursary. The album will be self-released on bandcamp. You can check out my [youtube](https://www.youtube.com/channel/UC1vVA69QkacFPkOPLdiILOQ) channel to see more.
-- Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. Currently mixing and mastering it for release in 2022!
+- Recorded my new EP "Wildwood" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. It can be purchased here: [bandcamp](https://judithring.bandcamp.com/album/wildwood)
 - Composed a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) with commission funds from the Arts Council for performance in 2022.
 - Collaborated with Lina Andonovska on a piece called "is it over yet?" for Music Networks - The Butterfly Sessions. A wide range of composers and performers were commissioned to write pieces in response to the lockdown and these were broadcast online. You can check out our video [here](https://www.youtube.com/watch?v=L4R7pt3opXo). 
 - Working on the completion of SAY, a mini-opera on a text by Michael Gallen. 
