@@ -3,10 +3,15 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+
+## The Weaver (2020) - written for The Guinness Choir under the direction of David Milne
+- The Guinness Choir - premiere at St. Patrick's Cathedral, May 2022.
+
 ## Twilight (2018) - arranged by Malachy Robinson for double bass
 - Malachy Robinson - Hugh Lane Gallery, 27th February 2022.
 
 ## Across the Empty Squares (2021) for Dermot Dunne - Accordion and tape
+- Dermot Dunne - performed live at the Sligo Internationsl Chamber Music Festival, April 2022. 
 - Dermot Dunne - Commissioned by [Sligo International Chamber Music Festival](https://www.sligointernationalchambermusicfestival.com/online-concerts). Online concerts on May 1-3rd at 4pm. 
 
 ## is it over yet? (2020) for Lina Andonovska - Flute duo
@@ -108,6 +113,7 @@ Commissioned by Michelle O’Rourke with funds from the Arts Council for her voc
 ## Fine Feathers Far Below The Blue Floor (2011), for viola, piano, clarinet and tape. 
 
 Commissioned by Concorde with funds from the Arts Council.
+- Concorde - National Concert Hall as part of the After Beethoven series curated by Jane O'Leary, June 2022.
 - Concorde featuring Garth Knox – Centre Culturel Irlandais, Paris, 14th October 2011
 - Concorde featuring Garth Knox – Hugh Lane Gallery, 26th June 2011
  
@@ -167,6 +173,7 @@ May 2008
 University, 28 February 2008
  
 ## Whispering The Turmoil Down (2007), for bass clarinet and tape:
+- Carl Rosman of MusikFabrik - National Concert Hall, After Beethoven series curated by Ann Cleare, June 2022.
 - Nick Morandi - concert of Irish music at Soundscape festival in Italy, 27th June 2017.
 - Paul Roe – The AIC The Irish Canon Season 2 –  
 8 Apr, 1pm Paul Roe Mary Immaculate College, Limerick
