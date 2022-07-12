@@ -49,6 +49,9 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 ## AUGUST 2022
 "Of Woods and Water" will be premiered on August 18th at the Appalachian Chamber Music Festival, Harpers Ferry, West Virginia, USA. 
 
+## JULY 2022
+"everything was asleep as if the universe was a vast mistake" for orchestra will be workshopped on 20th July by the National Symphony Orchestra in the National Concert Hall as part of the Contemporary Music Centre's composer lab project. The workshop runs from 10am - 3pm and features my piece as well as pieces from Adam McCartney and Seán O’Dálaigh. The workshop is open to the public. 
+
 ## JUNE 2022
 "Fine Feathers Far Below the Blue Floor" for violin, clarinet, piano and tape will be performed by Concorde at the National Concert Hall, Dublin in a concert curated by composer Jane O'Leary as part of the After Beethoven series. 15th June 2022, 19.30.
 
