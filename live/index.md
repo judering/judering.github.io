@@ -19,6 +19,7 @@ title: Performances
 
 ## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
 - Lina Andonovska - New Music Dublin 2020 - 28th February at Lina Andonovska's album launch on Diatribe Records.
+- Lina Andonovska - Green Note - London - 11th August 2022.
 
 ## Wildwood (2018) for Martin Johnson - cello solo
 - Martin Johnson - Premiere performance, Seamus Heaney Homeplace, 17th February 2022

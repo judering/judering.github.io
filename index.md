@@ -49,6 +49,8 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 ## AUGUST 2022
 "Of Woods and Water" will be premiered on August 18th at the Appalachian Chamber Music Festival, Harpers Ferry, West Virginia, USA. 
 
+"A Breath of Fresh Air" will be performed by Lina Andonovska at Green Note in London on the 11th August, 8.30pm.
+
 ## JULY 2022
 "everything was asleep as if the universe was a vast mistake" for orchestra will be workshopped on 20th July by the National Symphony Orchestra in the National Concert Hall as part of the Contemporary Music Centre's composer lab project. The workshop runs from 10am - 3pm and features my piece as well as pieces from Adam McCartney and Seán O’Dálaigh. The workshop is open to the public. 
 
