@@ -3,6 +3,8 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Of Woods and Water (2022) - written for the Appalachian Chamber Music Festival, USA
+- premiere at Harper's Ferry, VA on the 18th August.
 
 ## The Weaver (2020) - written for The Guinness Choir under the direction of David Milne
 - The Guinness Choir - premiere at St. Patrick's Cathedral, May 2022.
