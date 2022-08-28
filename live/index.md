@@ -4,7 +4,9 @@ title: Performances
 # PERFORMANCES (by piece):
 
 ## Of Woods and Water (2022) - written for the Appalachian Chamber Music Festival, USA
-- premiere at Harper's Ferry, VA on the 18th August.
+- Festival Finale, Happy Retreat, Charlestown, VA, on the 28 August 2022
+- Old Stone School, Hillsboro, VA, on the 27th August 2022
+- premiere at the opening concert, Barns of Rose Hill, Berryville, VA, on the 18th August 2022.
 
 ## The Weaver (2020) - written for The Guinness Choir under the direction of David Milne
 - The Guinness Choir - premiere at St. Patrick's Cathedral, May 2022.
