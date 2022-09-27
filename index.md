@@ -45,6 +45,9 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## SEPTEMBER 2022
+"Up to my f-holes" will be performed by Kate Ellis as part of her SOLO concert in St Ethelburga's, London on the 27th September. [Click here](https://www.thisissolo.co.uk/Events/SOLO-09-Kate-Ellis) for more info.
+
 ## AUGUST 2022
 "Of Woods and Water" will be premiered on August 18th/27th/28th at the Appalachian Chamber Music Festival, Harpers Ferry, West Virginia, USA. 
 
