@@ -45,6 +45,9 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## OCTOBER 2022
+"Flux" for Ondes Martenot and electronics will be performed in Lyons, France at the Musée des Confluences, 8th of October at 8pm. Written in collaboration with and performec by Nathalie Forget. 
+
 ## SEPTEMBER 2022
 "Up to my f-holes" will be performed by Kate Ellis as part of her SOLO concert in St Ethelburga's, London on the 27th September. [Click here](https://www.thisissolo.co.uk/Events/SOLO-09-Kate-Ellis) for more info.
 
