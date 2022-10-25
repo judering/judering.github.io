@@ -45,6 +45,25 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## NOVEMBER 2022
+"Winter Wisps Softly Dissipate" for cello and accordion commissioned by Music Network will be performed by Christian-Pierre La Marca (cello) & Félicien Brut (accordion) as part of their Music Network tour of Ireland:
+- Thursday 10 Nov - 8pm
+Regional Cultural Centre, Letterkenny
+- Saturday 12 Nov - 3pm
+Myross Wood House, Leap
+- Monday 14 Nov - 8pm
+Station House Theatre, Clifden (doors only)
+- Tuesday 15 Nov - 8pm
+Roscommon Arts Centre, Roscommon
+- Wednesday 16 Nov - 7:30pm
+Newman University Church, Dublin 2
+- Thursday 17 Nov - 8pm
+St. Johns Theatre & Arts Centre, Listowel
+- Friday 18 Nov - 7:30pm
+The Large Room, City Hall, Waterford
+- Sunday 20 Nov - 4pm
+The Parade Tower, Kilkenny Castle
+
 ## OCTOBER 2022
 "Flux" for Ondes Martenot and electronics will be performed in Lyons, France at the Musée des Confluences, 8th of October at 8pm. Written in collaboration with and performec by Nathalie Forget. 
 
