@@ -4,6 +4,8 @@ title: Performances
 # PERFORMANCES (by piece):
 
 ## Winter Wisps Softly Dissipate (2022) - written for Christian-Pierre La Marca (cello) and Félician Brut's (accordion) Music Network tour of Ireland, November 2022
+Commissioned by Music Network.
+
 - Thursday 10 Nov - 8pm
 Regional Cultural Centre, Letterkenny
 - Saturday 12 Nov - 3pm
