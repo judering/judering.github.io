@@ -46,6 +46,8 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 # RECENT AND UPCOMING PERFORMANCES
 
 ## NOVEMBER 2022
+"A Breath of Fresh Air" will be performed at Huddersfield Contemporary Music Festival on the 20th November 2022 by flautist Lina Andonovska as part of the launch of the Contemporary Music Centre's new music​:​:​new Ireland four promotional cd featuring 18 Irish composers and sonic artists. Click here to have a listen [bandcamp](https://cmcireland.bandcamp.com/album/new-music-new-ireland-four)
+
 "Winter Wisps Softly Dissipate" for cello and accordion commissioned by Music Network will be performed by Christian-Pierre La Marca (cello) & Félicien Brut (accordion) as part of their Music Network tour of Ireland:
 - Thursday 10 Nov - 8pm
 Regional Cultural Centre, Letterkenny
