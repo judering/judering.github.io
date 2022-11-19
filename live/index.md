@@ -3,6 +3,24 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Winter Wisps Softly Dissipate (2022) - written for Christian-Pierre La Marca (cello) and Félician Brut's (accordion) Music Network tour of Ireland, November 2022
+- Thursday 10 Nov - 8pm
+Regional Cultural Centre, Letterkenny
+- Saturday 12 Nov - 3pm
+Myross Wood House, Leap
+- Monday 14 Nov - 8pm
+Station House Theatre, Clifden (doors only)
+- Tuesday 15 Nov - 8pm
+Roscommon Arts Centre, Roscommon
+- Wednesday 16 Nov - 7:30pm
+Newman University Church, Dublin 2
+- Thursday 17 Nov - 8pm
+St. Johns Theatre & Arts Centre, Listowel
+- Friday 18 Nov - 7:30pm
+The Large Room, City Hall, Waterford
+- Sunday 20 Nov - 4pm
+The Parade Tower, Kilkenny Castle
+
 ## Of Woods and Water (2022) - written for the Appalachian Chamber Music Festival, USA
 - Festival Finale, Happy Retreat, Charlestown, VA, on the 28 August 2022
 - Old Stone School, Hillsboro, VA, on the 27th August 2022
@@ -22,6 +40,7 @@ title: Performances
 - Lina Andonovska x 2 - written for the Music Network Butterfly Sessions as part of a response to the lockdown. We recorded this as a video broadcast with Lina dueting with herself. 
 
 ## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
+- Lina Andonovska - Huddersfield Contemporary Music Festival 2022. CMC album launch. 
 - Lina Andonovska - New Music Dublin 2020 - 28th February at Lina Andonovska's album launch on Diatribe Records.
 - Lina Andonovska - Green Note - London - 11th August 2022.
 
