@@ -33,6 +33,9 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## DECEMBER 2022
+"Invisible Scamper" for my WILDWOOD cello suite will be performed by Martin Johnson at the launch of newmusic::newIreland 4, the Contemporary Music Centre's latest promotional CD which features 18 Irish composers and sound artists including this piece of mine. 8th December, 6.30pm. 
+
 ## NOVEMBER 2022
 "A Breath of Fresh Air" will be performed at Huddersfield Contemporary Music Festival on the 20th November 2022 by flautist Lina Andonovska as part of the launch of the Contemporary Music Centre's new music​:​:​new Ireland four promotional cd featuring 18 Irish composers and sonic artists. My piece "Invisible Scamper" performed by cellist Martin Johnson is featured on the cd. Click here to have a listen [bandcamp](https://cmcireland.bandcamp.com/album/new-music-new-ireland-four)
 
