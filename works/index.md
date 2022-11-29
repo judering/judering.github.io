@@ -86,7 +86,7 @@ List of compositions from 1999 - 2022
 - Illusion (1999)
 - Accumulation (2000)
 
-<h2 id="SONG">SONGS</h2>
+<h2 id="SONGS">SONGS</h2>
 
 - Amber (2017) - voice, violin, viola, cello and piano
 - The Old Train (2017) - voice, violin, viola, cello and piano
