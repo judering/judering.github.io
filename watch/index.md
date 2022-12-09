@@ -10,6 +10,13 @@ Premiere performed by Rachelle Hunt (violin 1), Audrey Pride (violin 2), Daniell
 <br>
 <br>
 
+ACROSS THE EMPTY SQUARES <br>
+Commissioned by the Sligo International Chamber Music Festival 2021. Performed by Dermot Dunne (accordion and electronics).
+
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/hAn0CpJbxR8?start=2482" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+<br>
+<br>
+
 IS IT OVER YET? <br>
 Written for and performed by Lina Andonovska and herself. Commissioned by Music Network for The Butterfly Sessions - a series of online performances in response to the COVID19 lockdown. 
 
