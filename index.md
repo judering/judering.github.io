@@ -13,12 +13,11 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
-
+- Premiere of my orchestral piece "Everything was asleep as if the universe was a vast mistake" written for the National Symphony Orchestra of Ireland as part of The Contemporary Music Centre's composer lab project will be performed and broadcast on RTE's Lyric FM on January 9th at 9pm. 
 - My piece "Invisible Scamper" for solo cello, performed by Martin Johnson is featured on the Contemporary Music Centre's "new music​:​:​new Ireland four" promotional cd which is now available to stream on [bandcamp](https://cmcireland.bandcamp.com/album/new-music-new-ireland-four)
 - Commissioned by Music Network to write a piece for the cello and accordion duo Christian-Pierre La Marca and Félicien Brut for performance in November 2022. 
 - Commissioned by Larissa O'Grady to write a piece for violin and electronics with funds from the Arts Council
 - Commissioned by The Appalachian Chamber Music Festival to write a piece with a bluegrass slant to celebrate Irish folk roots in Appalachia. Sponsored by Berryville Graphics. World premiere will take place on the 18th August in Harpers Ferry, West Virginia, USA.
-- Currently writing an orchestral piece for the National Symphony Orchestra of Ireland as part of The Contemporary Music Centre's composer lab project. 
 - Working on the completion of vocal and electronics album for release by the end of the year. The material for the album was funded by an Arts Council Bursary. The album will be self-released on bandcamp. You can check out my [youtube](https://www.youtube.com/channel/UC1vVA69QkacFPkOPLdiILOQ) channel to see more.
 - Recorded my new EP "WILDWOOD" - a suite for solo cello - written for and performed by Martin Johnson at the end of September. It can be purchased here: [bandcamp](https://judithring.bandcamp.com/album/wildwood)
 - Composed a new choral piece for the [Guinness choir](https://www.guinnesschoir.org) called "The Weaver" on a poem by Diane Tierney. Commission funds from the Arts Council for performance in 2022.
