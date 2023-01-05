@@ -1,6 +1,12 @@
 ---
 title: Watch
 ---
+WINTER WISPS SOFTLY DISSIPATE
+Commissioned by Music Network. Written for Christian-Pierre La Marca and Félicien Brut (cello and accordion) as part of their Music Network tour around Ireland. Performed in Newman University Church, Dublin 2 on 16th November 2022.
+
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/V_vSBcqy260" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe></center>
+<br>
+<br>
 
 OF WOODS AND WATER <br>
 Commissioned by the Appalachian Chamber Music Festival in Berryville, Virginia, USA.
@@ -75,12 +81,14 @@ TO PULL AN EERIE TWIST - VIDEO BY BENEDICT SCHLEPPER CONNOLLY <BR>
 <br>
 Documentary film by Benedict Schlepper-Connolly for the Journal of Music on the writing of "To Pull an Eerie Twist", 2011.
 <br>
+<br>
 
 WHAT WAS - ALBUM PROMO VIDEO<br>
 Filmed and edited by Laura Sheeran for Ergodos records.
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/VWPkBAO3TuU" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe></center>
 <br>
 A promotional film for my debut album What Was on Ergodos records.
+<br>
 <br>
 
 PLEASE REMAIN SEATED choreography by Anna Melander, music by Judith Ring
@@ -90,12 +98,10 @@ PLEASE REMAIN SEATED choreography by Anna Melander, music by Judith Ring
   <iframe width="560" height="315" src="https://www.youtube.com/embed/vR_6831tVd4?rel=0" frameborder="0" allowfullscreen></iframe>
 <p></p></center>
 A collaboration with composer. Judith Ring Choreography Anna Melander. A city or village is a living organism with it's own intricate rythm. We are all part of the organism called society. <br>
-You can listen to the original music here:
-<iframe width="100%" height="20" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/45648136&amp;color=%23ffb800&amp;inverse=false&amp;auto_play=false&amp;show_user=true"></iframe>
+
 <br>
 <br>
-<br>
-<br>
+
 LOST AGAIN choreography by Anna Melander, music by Judith Ring
 <br>
 <br>
@@ -103,11 +109,6 @@ LOST AGAIN choreography by Anna Melander, music by Judith Ring
 <iframe width="560" height="315" src="https://www.youtube.com/embed/f44dVWK7ep0?rel=0" frameborder="0" allowfullscreen></iframe>
 <p></p></center>
 A collaboration with the composer Judith Ring dancers Anna Melander and Sarah Callow
-<br>
-You can listen to the original music here:
-<iframe width="100%" height="20" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/45648135&amp;color=%23ffb800&amp;inverse=false&amp;auto_play=false&amp;show_user=true"></iframe>
-<br>
-<br>
 <br>
 <br>
 <br>
