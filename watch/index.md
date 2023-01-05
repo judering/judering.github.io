@@ -1,7 +1,7 @@
 ---
 title: Watch
 ---
-WINTER WISPS SOFTLY DISSIPATE
+WINTER WISPS SOFTLY DISSIPATE <br>
 Commissioned by Music Network. Written for Christian-Pierre La Marca and Félicien Brut (cello and accordion) as part of their Music Network tour around Ireland. Performed in Newman University Church, Dublin 2 on 16th November 2022.
 
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/V_vSBcqy260" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe></center>
