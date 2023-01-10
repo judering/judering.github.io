@@ -1,6 +1,14 @@
 ---
 title: Watch
 ---
+
+EVERYTHING WAS ASLEEP AS IF THE UNIVERSE WAS A VAST MISTAKE
+Written for the National Symphony Orchestra as part of The Contemporary Music Centre's Composer Lab. Premiere performance from the 9th of January 2023 below:
+
+<center><iframe width="1358" height="607" src="https://youtu.be/vB99ATend8c?t=2046" title="Composer Lab" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe></center>
+<br>
+<br>
+
 WINTER WISPS SOFTLY DISSIPATE <br>
 Commissioned by Music Network. Written for Christian-Pierre La Marca and Félicien Brut (cello and accordion) as part of their Music Network tour around Ireland. Performed in Newman University Church, Dublin 2 on 16th November 2022.
 
