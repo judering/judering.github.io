@@ -5,7 +5,7 @@ title: Watch
 EVERYTHING WAS ASLEEP AS IF THE UNIVERSE WAS A VAST MISTAKE <br>
 Written for the National Symphony Orchestra as part of The Contemporary Music Centre's Composer Lab. Premiere performance from the 9th of January 2023 below:
 
-<center><iframe width="560" height="315" src="https://youtu.be/vB99ATend8c?t=2049" title="Composer Lab" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe></center>
+<center><iframe width="560" height="315" src="https://youtu.be/vB99ATend8c?start=2049" title="Composer Lab" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe></center>
 <br>
 <br>
 
