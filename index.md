@@ -33,6 +33,8 @@ WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5
 # RECENT AND UPCOMING PERFORMANCES
 
 ## JANUARY 2023
+"Invisible Scamper" from my WILDWOOD cello suite will be performed by Martin Johnson at the Northern Ireland launch of newmusic::newIreland 4, the Contemporary Music Centre's latest promotional CD. The MAC, Belfast, 26th January at 7.30pm
+
 "Everything was asleep as if the universe was a vast mistake" for the National Symphony Orchestra will be performed at the National Concert Hall and broadcast live on RTE's Lyric FM at 9pm on January 9th, 2023.
 
 ## DECEMBER 2022
