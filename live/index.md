@@ -3,7 +3,7 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
-## everything was asleep as if the universe was a vast mistake (2022) - written for the National Symphony Orchestra of Ireland as part of the Contemporary Music Centre's composer lab. 
+## Everything was asleep as if the universe was a vast mistake (2022) - written for the National Symphony Orchestra of Ireland as part of the Contemporary Music Centre's composer lab. 
 - National Concert Hall, 9th January, 2023. Performance and live broadcast on RTÉ Lyric FM.
 
 ## Winter Wisps Softly Dissipate (2022) - written for Christian-Pierre La Marca (cello) and Félician Brut's (accordion) Music Network tour of Ireland, November 2022
