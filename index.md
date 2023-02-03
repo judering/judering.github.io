@@ -1,14 +1,16 @@
 ---
 title: Judith Ring
 ---
-# NEW RELEASE - [click here to order your copy on bandcamp](https://judithring.bandcamp.com)
-WILDWOOD released on 02/02/2022 features cellist Martin Johnson. This suite of 5 pieces takes you on a journey through the woods alone at dusk. It is a reflection on feelings of isolation, fear, awe and intrigue. 
 
- 
-<center><iframe width="560" height="315" src="https://www.youtube.com/embed/wm9DWWteCVY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+Latest orchestral performance and interview can be viewed below: 
+
+EVERYTHING WAS ASLEEP AS IF THE UNIVERSE WAS A VAST MISTAKE <br>
+Written for the National Symphony Orchestra as part of The Contemporary Music Centre's Composer Lab. The premiere performance and live broadcast on RTÉ Lyric FM  was on the 9th of January 2023:
 <br>
-<center> 50% of all digital and physical sales in 2022 will go to the charity "hometree" - to establish and conserve permanent native woodland in Ireland, encouraging land regeneration and biodiversity through afforestation, restoration and education. www.hometree.ie </center>
+<br>
 
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/vB99ATend8c?start=2049" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe></center>
+<br>
 <br>
 
 

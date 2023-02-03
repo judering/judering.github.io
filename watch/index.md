@@ -3,7 +3,7 @@ title: Watch
 ---
 
 EVERYTHING WAS ASLEEP AS IF THE UNIVERSE WAS A VAST MISTAKE <br>
-Written for the National Symphony Orchestra as part of The Contemporary Music Centre's Composer Lab. Premiere performance from the 9th of January 2023 below:
+Written for the National Symphony Orchestra as part of The Contemporary Music Centre's Composer Lab. The premiere performance and live broadcast on RTÉ Lyric FM  was on the 9th of January 2023:
 
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/vB99ATend8c?start=2049" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe></center>
 <br>
