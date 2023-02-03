@@ -84,6 +84,12 @@ Phonica is a Dublin-based poetry and music venture with an emphasis on multiform
 <br>
 <br>
 <br>
+MY ONE'S BIGGER THAN YOURS <br>
+Performed by Kate Ellis (cello) and Malachy Robinson (double Bass) at SENSORIUM festival, Dublin 2011
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/ZC0ghW0vK9A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe></center>
+<br>
+<br>
+<br>
 TO PULL AN EERIE TWIST - VIDEO BY BENEDICT SCHLEPPER CONNOLLY <BR>
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/78xgBhb81t0" frameborder="0" allow="autoplay; encrypted-media" allowfullscreen></iframe></center>
 <br>
