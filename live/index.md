@@ -121,6 +121,8 @@ The Parade Tower, Kilkenny Castle
 - RHA, Ely Place, Dublin, 20th January 2013. Two performances.
 
 ## FLUX – jeux de bague (2012) for Ondes Martenot and tape. Written for and in collaboration with Nathalie Forget.
+- Pierre-Emmanuel Hurpeau at the Mediatheque, Conservatoire National Supérieur de musique et de danse de Paris, 14th February, 18.00.
+- Nathalie Forget at the Musée des Confluences, 8th of October at 8pm. 
 - Nathalie Forget at the Royal Liverpool Philharmonic, 26th Jan 2018.
 - Nathalie Forget performs Flux for Ondes Martenot and tape as part of Les Conversatoires #5 on March 23rd, 2017 at 21.00 at Le Triton, 11 bis rue du coq français, 93260 Les Lilas
 - 21st of June at Lilas en Scène.

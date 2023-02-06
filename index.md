@@ -34,6 +34,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## FEBRUARY 2023
+"Flux" for Ondes Martenot and electronics - written in collaboration with Nathalie Forget. Performance by Pierre-Emmanuel Hurpeau at the Mediatheque at the Conservatoire National Supérieur de musique et de danse de Paris, 14th February, 18.00.
+
 ## JANUARY 2023
 "Invisible Scamper" from my WILDWOOD cello suite will be performed by Martin Johnson at the Northern Ireland launch of newmusic::newIreland 4, the Contemporary Music Centre's latest promotional CD. The MAC, Belfast, 26th January at 7.30pm
 
