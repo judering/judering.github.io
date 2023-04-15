@@ -17,7 +17,7 @@ Debut album "What was" is available on [ergodos](https://ergodos.bandcamp.com/al
 
 <br>
 <br>
-Below is a some selection of live recordings from various live concerts over the years. 
+Below is a selection of live recordings from various live concerts over the years. 
 <hr>
 
 **Everything was asleep as if the universe was a vast mistake** - written for the National Symphony Orchestra of Ireland as part of the Contemporary Music Centre's professional development composer lab.

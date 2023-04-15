@@ -16,7 +16,8 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 # CURRENT PROJECTS, NEWS AND PLANS
 - Guest composer and teacher at SoundScape festival, Blonay, Switzerland in July 2023.
-- Residency in Cill Rialaig for two weeks in the Spring
+- Residency in Cill Rialaig for two weeks in the Spring.
+- Writing and researching string quartets with the aid of a bursary from the Arts Council.
 - Premiere of my orchestral piece "Everything was asleep as if the universe was a vast mistake" written for the National Symphony Orchestra of Ireland as part of The Contemporary Music Centre's composer lab project will be performed and broadcast on RTE's Lyric FM on January 9th at 9pm. 
 - My piece "Invisible Scamper" for solo cello, performed by Martin Johnson is featured on the Contemporary Music Centre's "new music​:​:​new Ireland four" promotional cd which is now available to stream on [bandcamp](https://cmcireland.bandcamp.com/album/new-music-new-ireland-four)
 - Commissioned by Music Network to write a piece for the cello and accordion duo Christian-Pierre La Marca and Félicien Brut for performance in November 2022. 
