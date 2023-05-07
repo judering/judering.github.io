@@ -13,6 +13,7 @@ List of compositions from 1999 - 2023
 
 <h2 id="SOLO">SOLO</h2>
 
+- Swept Through the Floods* (2023) - violin
 - Across the Empty Squares* (2021) - accordion
 - A Breath of Fresh Air (2019) - flute
 - Between the Fragments of Memory (2019) - flute
