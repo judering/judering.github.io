@@ -22,11 +22,12 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 - My piece "Invisible Scamper" for solo cello, performed by Martin Johnson is featured on the Contemporary Music Centre's "new music​:​:​new Ireland four" promotional cd which is now available to stream on [bandcamp](https://cmcireland.bandcamp.com/album/new-music-new-ireland-four)
 - Commissioned by Music Network to write a piece for the cello and accordion duo Christian-Pierre La Marca and Félicien Brut for performance in November 2022. 
 - Commissioned by Larissa O'Grady to write a piece for violin and electronics with funds from the Arts Council
-- Commissioned by The Appalachian Chamber Music Festival to write a piece with a bluegrass slant to celebrate Irish folk roots in Appalachia. Sponsored by Berryville Graphics. World premiere will take place on the 18th August in Harpers Ferry, West Virginia, USA.
+- Commissioned by The Appalachian Chamber Music Festival to write a piece with a bluegrass slant to celebrate Irish folk roots in Appalachia. Sponsored by Berryville Graphics. World premiere took place on the 18th August, 2022 in Harpers Ferry, West Virginia, USA.
 
 
 
 # PODCAST APPEARANCES
+[Click here](https://www.cmc.ie/amplify/episode-85) Sounding the Alarm - new music and the climate emergency: amplify LIVE at New Music Dublin 2023. A panel discussion hosted by Jonathan Grimes of The Contemporary Music Centre, featuring myself, Juergen Simpson, Karen Power and Robert Curgenven.
 
 [Click here](https://www.cmc.ie/amplify/episode-40) listen back to a group chat for New Music Dublin 2021. We talk about the concerts and works that were performed.
 
@@ -34,6 +35,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
  
 # RECENT AND UPCOMING PERFORMANCES
+
+## APRIL 2023
+"Swept Through the Floods" for violin and electronics written for Larissa O'Grady was performed at a Contemporary Music Centre showcase at New Music Dublin on the 23rd April.
 
 ## FEBRUARY 2023
 "Flux" for Ondes Martenot and electronics - written in collaboration with Nathalie Forget. Performance by Pierre-Emmanuel Hurpeau at the Mediatheque at the Conservatoire National Supérieur de musique et de danse de Paris, 14th February, 18.00.

@@ -17,7 +17,12 @@ List of compositions from 1999 - 2023
 - A Breath of Fresh Air (2019) - flute
 - Between the Fragments of Memory (2019) - flute
 - Upbeat Furore (2019) - cello
-- Wildwood (2018) - cello
+- Wildwood (2018) - cello suite
+    - Beyond the Woods
+    - The Wood Between the Worlds 
+    - Twilight Lull
+    - Dark Moon Rising
+    - Invisible Scamper
 - Dusting the Moth (2018) - piano
 - Flux* (2012) - ondes martenot
 - Hush* (2008) - viola (adapted)
@@ -80,7 +85,7 @@ List of compositions from 1999 - 2023
 - Metallurgy (2007)
 - Nocan (2002)
 - Congestion (2001)
-- Interlude (1999))
+- Interlude (1999)
 - Membrane (1999)
 - Congestion (2001)
 - Illusion (1999)
