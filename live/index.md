@@ -3,6 +3,9 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Swept Through the Floods (2023) - written for Larissa O'Grady 
+- NMD 2023, NMDX performance showcase, 23rd April, 2023
+
 ## Everything was asleep as if the universe was a vast mistake (2022) - written for the National Symphony Orchestra of Ireland as part of the Contemporary Music Centre's composer lab. 
 - National Concert Hall, 9th January, 2023. Performance and live broadcast on RTÉ Lyric FM.
 
@@ -50,6 +53,7 @@ The Parade Tower, Kilkenny Castle
 - Lina Andonovska - Green Note - London - 11th August 2022.
 
 ## Wildwood (2018) for Martin Johnson - cello solo
+- Martin Johnson - Invisible Shadows, The Mac, Belfast, CMC promotional CD launch, 26th January 2023
 - Martin Johnson - Premiere performance, Seamus Heaney Homeplace, 17th February 2022
 - Martin Johnson - Hugh Lane Gallery, 20 September 2020 (cancelled)
 - Martin Johnson performed this suite of cello pieces at a St. Brigid's day celebration at the Contemporary Music Centre, Dublin.
