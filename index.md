@@ -36,6 +36,12 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## JULY 2023
+"Swelt Belly at Dawn" for clarinet, violin and cello, and "Per_form" for Vibraphone and electronics will be performed at soundSCAPE, Blonay, Switzerland as part of a concert I'm curating during my residency there. Featuring pieces by Ed Bennett, Donnacha Dennehy and Ann Cleare also. 
+
+## JUNE 2023
+"The Sylph" on a poem by Roderick Ford. Performed acapella by Michelle O'Rourke at the Hugh Lane Gallery Concert at Noon series on the 4th June 2023.
+
 ## APRIL 2023
 "Swept Through the Floods" for violin and electronics written for Larissa O'Grady was performed at a Contemporary Music Centre showcase at New Music Dublin on the 23rd April.
 

@@ -3,6 +3,9 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## The Sylph (2017) - one of the Ring Lieder collection. 
+- Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
+
 ## Swept Through the Floods (2023) - written for Larissa O'Grady 
 - NMD 2023, NMDX performance showcase, 23rd April, 2023
 
@@ -104,6 +107,7 @@ The Parade Tower, Kilkenny Castle
 - Performed by Martin and Adele Johnson at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
 
 ## Swelt Belly At Dawn (2013) for Concorde. Piece for trio – clarinet, violin and cello.
+- soundSCAPE musicians, Blonay, Switzerland, 12th July, 2023
 - Evlana ensemble - performed at New Music Dublin 2021. Friday 23rd April. Evlana concert 1. 
 - Hard Rain Ensemble - perform at International Woman's day at the Crescent Arts Centre, Belfast on Wed 8th March 2018.
 - Concorde - Hong Kong, November 1st,2nd,3rd, and 4th at the San Wan Ho Civic Centre, Hong Kong, 7pm pre-concert talk, 8pm concert
@@ -203,6 +207,7 @@ May 2008
 - Laura Moody – Sir Jack Lyons Concert Hall, University of York, 6th February 2008
  
 ## PER_FORM (2007), for vibraphone and tape:
+- soundSCAPE musician, Blonay, Switzerland, 12 July 2023
 - Damien Harron – Soundwaves festival, Brighton and Hove, 29th June 2008
 - Damien Harron – Algager Arts Centre, Axis Theatre, Manchester Metropolitan
 University, 28 February 2008
