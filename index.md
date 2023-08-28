@@ -36,6 +36,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## SEPTEMBER 2023
+"Swept Through the Floods" for solo violin and fixed media, commissioned and performed by Larissa O'Grady, will be premiered at the Hugh Lane Gallery, Dublin, alongside pieces by Jenn Kirby, Anselm McDonnell, David Bremner, Fiona Linnane and Robert Coleman. 12pm September 3rd, 2023. 
+
 ## JULY 2023
 "Swelt Belly at Dawn" for clarinet, violin and cello, and "Per_form" for Vibraphone and electronics will be performed at soundSCAPE, Blonay, Switzerland as part of a concert I'm curating during my residency there. Featuring pieces by Ed Bennett, Donnacha Dennehy and Ann Cleare also. 
 
