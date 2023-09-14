@@ -6,7 +6,8 @@ title: Performances
 ## The Sylph (2017) - one of the Ring Lieder collection. 
 - Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
 
-## Swept Through the Floods (2023) - written for Larissa O'Grady 
+## Swept Through the Floods (2023) - written for Larissa O'Grady (violin and tape)
+- Hugh Lane Gallery, Sundays at noon concert. Larissa O'Grady showcase concert.
 - NMD 2023, NMDX performance showcase, 23rd April, 2023
 
 ## Everything was asleep as if the universe was a vast mistake (2022) - written for the National Symphony Orchestra of Ireland as part of the Contemporary Music Centre's composer lab. 
@@ -51,6 +52,7 @@ The Parade Tower, Kilkenny Castle
 - Lina Andonovska x 2 - written for the Music Network Butterfly Sessions as part of a response to the lockdown. We recorded this as a video broadcast with Lina dueting with herself. 
 
 ## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
+- Lina Andonovska - Fuddle Fest 2023, Wexford, 26th August.
 - Lina Andonovska - Huddersfield Contemporary Music Festival 2022. CMC album launch. 
 - Lina Andonovska - New Music Dublin 2020 - 28th February at Lina Andonovska's album launch on Diatribe Records.
 - Lina Andonovska - Green Note - London - 11th August 2022.
@@ -152,6 +154,7 @@ Commissioned by Michelle O’Rourke with funds from the Arts Council for her voc
 ## Fine Feathers Far Below The Blue Floor (2011), for viola, piano, clarinet and tape. 
 
 Commissioned by Concorde with funds from the Arts Council.
+- Angelus concert - Brisbane Music Festival, Australia, 6th December 2024.
 - Concorde - National Concert Hall as part of the After Beethoven series curated by Jane O'Leary, June 2022.
 - Concorde featuring Garth Knox – Centre Culturel Irlandais, Paris, 14th October 2011
 - Concorde featuring Garth Knox – Hugh Lane Gallery, 26th June 2011

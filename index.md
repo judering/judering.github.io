@@ -15,6 +15,7 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
+- Commissioned by Evlana ensemble to write a piece for the Finding a Voice Festival in 2024.
 - Guest composer and teacher at SoundScape festival, Blonay, Switzerland in July 2023.
 - Residency in Cill Rialaig for two weeks in the Spring.
 - Writing and researching string quartets with the aid of a bursary from the Arts Council.
@@ -36,8 +37,14 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## DECEMBER 2023
+"fine feathers far below the blue floor" for clarinet, viola, cello, piano and tape will be performed by Dario Scalabrini, Nicole Greentree, Katherine Philp and Alex Raineri during the Angelus concert at the Brisbane Music Festival in Australia on the 6th December at 7.30pm. 
+
 ## SEPTEMBER 2023
 "Swept Through the Floods" for solo violin and fixed media, commissioned and performed by Larissa O'Grady, will be premiered at the Hugh Lane Gallery, Dublin, alongside pieces by Jenn Kirby, Anselm McDonnell, David Bremner, Fiona Linnane and Robert Coleman. 12pm September 3rd, 2023. 
+
+## AUGUST 2023
+"A Breath of Fresh Air" for solo flute. Performed by Lina Andonovska at Fuddle Fest in Wexford on the 26th August 2023.
 
 ## JULY 2023
 "Swelt Belly at Dawn" for clarinet, violin and cello, and "Per_form" for Vibraphone and electronics will be performed at soundSCAPE, Blonay, Switzerland as part of a concert I'm curating during my residency there. Featuring pieces by Ed Bennett, Donnacha Dennehy and Ann Cleare also. 
