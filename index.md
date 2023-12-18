@@ -38,10 +38,10 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 # RECENT AND UPCOMING PERFORMANCES
 
 ## JANUARY 2024
-"fine feathers far below the blue floor" for clarinet, violin, cello, piano and tape will be performed at the 16th Annual SoundON festival in San Diege, Athenaeum Music & Arts Library 1008 Wall Street La Jolla, CA 92037, Sunday 7th January, 3pm. 
+"fine feathers far below the blue floor" for clarinet, violin, piano and tape will be performed at the 16th Annual SoundON festival in San Diege, Athenaeum Music & Arts Library 1008 Wall Street La Jolla, CA 92037, Sunday 7th January, 3pm. 
 
 ## DECEMBER 2023
-"fine feathers far below the blue floor" for clarinet, viola, cello, piano and tape will be performed by Dario Scalabrini, Nicole Greentree, Katherine Philp and Alex Raineri during the Angelus concert at the Brisbane Music Festival in Australia on the 6th December at 7.30pm. 
+"fine feathers far below the blue floor" for clarinet, viola, piano and tape will be performed by Dario Scalabrini, Nicole Greentree, and Alex Raineri during the Angelus concert at the Brisbane Music Festival in Australia on the 6th December at 7.30pm. 
 
 ## SEPTEMBER 2023
 "Swept Through the Floods" for solo violin and fixed media, commissioned and performed by Larissa O'Grady, will be premiered at the Hugh Lane Gallery, Dublin, alongside pieces by Jenn Kirby, Anselm McDonnell, David Bremner, Fiona Linnane and Robert Coleman. 12pm September 3rd, 2023. 
