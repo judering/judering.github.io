@@ -15,15 +15,13 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
-- Commissioned by Evlana ensemble to write a piece for the Finding a Voice Festival in 2024.
+- Commissioned by the Dublin International Piano Competition to write piece for the 13th edition of the competition which will take place in February 2025.
+- Commissioned by Finding a Voice Festival to write a piece for Evlana ensemble. The premiere will take place in Clonmel on the 9th March 2024.
 - Guest composer and teacher at SoundScape festival, Blonay, Switzerland in July 2023.
-- Residency in Cill Rialaig for two weeks in the Spring.
+- Residency in Cill Rialaig for two weeks in the Spring of 2023.
 - Writing and researching string quartets with the aid of a bursary from the Arts Council.
 - Premiere of my orchestral piece "Everything was asleep as if the universe was a vast mistake" written for the National Symphony Orchestra of Ireland as part of The Contemporary Music Centre's composer lab project will be performed and broadcast on RTE's Lyric FM on January 9th at 9pm. 
-- My piece "Invisible Scamper" for solo cello, performed by Martin Johnson is featured on the Contemporary Music Centre's "new music​:​:​new Ireland four" promotional cd which is now available to stream on [bandcamp](https://cmcireland.bandcamp.com/album/new-music-new-ireland-four)
-- Commissioned by Music Network to write a piece for the cello and accordion duo Christian-Pierre La Marca and Félicien Brut for performance in November 2022. 
-- Commissioned by Larissa O'Grady to write a piece for violin and electronics with funds from the Arts Council
-- Commissioned by The Appalachian Chamber Music Festival to write a piece with a bluegrass slant to celebrate Irish folk roots in Appalachia. Sponsored by Berryville Graphics. World premiere took place on the 18th August, 2022 in Harpers Ferry, West Virginia, USA.
+
 
 
 
@@ -36,6 +34,11 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
  
 # RECENT AND UPCOMING PERFORMANCES
+
+## MARCH 2024
+"Across the Empty Squares" for accordion and electronics will be performed by Dermot Dunne in Berlin at the Éiriocht - New Music From Ireland event that will take place across the Kuppelhalle and Betonhalle of Berlin’s silent green Kulturquartier on March 24th 2024.
+
+"The River Was Never Afraid" for Evlana ensemble commissioned by Finding a Voice festival will be performed on March 9th at 7.30pm at the STAC chapel, Clonmel, Ireland.
 
 ## JANUARY 2024
 "fine feathers far below the blue floor" for clarinet, violin, piano and tape will be performed at the 16th Annual SoundON festival in San Diego, Athenaeum Music & Arts Library 1008 Wall Street La Jolla, CA 92037, Sunday 7th January, 3pm. 
