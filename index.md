@@ -15,7 +15,7 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
-- Commissioned by the Dublin International Piano Competition to write piece for the 13th edition of the competition which will take place in February 2025.
+- Commissioned by RTÉ lyric fm for the Dublin International Piano Competition to write piece for the 13th edition of the competition which will take place in February 2025.
 - Commissioned by Finding a Voice Festival to write a piece for Evlana ensemble. The premiere will take place in Clonmel on the 9th March 2024.
 - Guest composer and teacher at SoundScape festival, Blonay, Switzerland in July 2023.
 - Residency in Cill Rialaig for two weeks in the Spring of 2023.
