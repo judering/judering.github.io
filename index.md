@@ -15,6 +15,7 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
+- Commissioned to write a piece for piano and flute for Alex Raineri and Lina Andonovska for performance in October 2024.
 - Commissioned by RTÉ lyric fm for the Dublin International Piano Competition to write piece for the 13th edition of the competition which will take place in February 2025.
 - Commissioned by Finding a Voice Festival to write a piece for Evlana ensemble. The premiere will take place in Clonmel on the 9th March 2024.
 - Guest composer and teacher at SoundScape festival, Blonay, Switzerland in July 2023.
@@ -39,7 +40,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 "Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29 November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
 
 ## MARCH 2024
-"Across the Empty Squares" for accordion and electronics will be performed by Dermot Dunne in Berlin at the Éiriocht - New Music From Ireland event that will take place across the Kuppelhalle and Betonhalle of Berlin’s silent green Kulturquartier on March 24th 2024.
+"Across the Empty Squares" for accordion and electronics will be performed by Dermot Dunne in Berlin at the Éiriocht - New Music From Ireland event that will take place across the Kuppelhalle and Betonhalle of Berlin’s silent green Kulturquartier on March 24th 2024 at 19.30.
+
+"A Breath of Fresh Air" for solo flute will be performed by Lina Andonovska in Berlin at the Éiriocht - New Music From Ireland event that will take place across the Kuppelhalle and Betonhalle of Berlin’s silent green Kulturquartier on March 24th 2024 at 19.30.
 
 "The River Was Never Afraid" for Evlana ensemble commissioned by Finding a Voice festival will be performed on March 9th at 7.30pm at the STAC chapel, Clonmel, Ireland.
 

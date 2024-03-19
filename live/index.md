@@ -3,6 +3,9 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## The River Was Never Afraid - written for Evlana ensemble
+- Evlana ensemble, Finding a Voice Festival, Clonmel, Ireland, 7,30pm, STAC chapel. 
+
 ## The Sylph (2017) - one of the Ring Lieder collection. 
 - Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
 
@@ -45,6 +48,7 @@ The Parade Tower, Kilkenny Castle
 - Malachy Robinson - Hugh Lane Gallery, 27th February 2022.
 
 ## Across the Empty Squares (2021) for Dermot Dunne - Accordion and tape
+- Dermot Dunne - Éiríocht - New Music From Ireland, Berlin, March 24th, 2024. 7.30pm
 - Dermot Dunne - performed live at the Sligo Internationsl Chamber Music Festival, April 2022. 
 - Dermot Dunne - Commissioned by [Sligo International Chamber Music Festival](https://www.sligointernationalchambermusicfestival.com/online-concerts). Online concerts on May 1-3rd at 4pm. 
 
@@ -52,6 +56,7 @@ The Parade Tower, Kilkenny Castle
 - Lina Andonovska x 2 - written for the Music Network Butterfly Sessions as part of a response to the lockdown. We recorded this as a video broadcast with Lina dueting with herself. 
 
 ## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
+- Lina Andonovska - Éiríocht - New Music From Ireland, Berlin, March 24th, 2024. 7.30pm
 - Lina Andonovska - Fuddle Fest 2023, Wexford, 26th August.
 - Lina Andonovska - Huddersfield Contemporary Music Festival 2022. CMC album launch. 
 - Lina Andonovska - New Music Dublin 2020 - 28th February at Lina Andonovska's album launch on Diatribe Records.
