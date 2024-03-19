@@ -15,6 +15,8 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
+- I was interviewed as part of a two-part documentary on RTÉ Lyric FM's Lyric Feature produced by Jonathan Grimes and the Contemporary Music Centre called "We Only Want The Earth" about how Irish composers are responding to the climate crisis. You can listen back here: 
+https://www.rte.ie/radio/lyricfm/clips/22372133/
 - Commissioned to write a piece for piano and flute for Alex Raineri and Lina Andonovska for performance in October 2024.
 - Commissioned by RTÉ lyric fm for the Dublin International Piano Competition to write piece for the 13th edition of the competition which will take place in February 2025.
 - Commissioned by Finding a Voice Festival to write a piece for Evlana ensemble. The premiere will take place in Clonmel on the 9th March 2024.
