@@ -67,6 +67,7 @@ List of compositions from 1999 - 2023
 
 <h2 id="ENSEMBLE">ENSEMBLE</h2>
 
+- The River Was Never Afraid (2024) - Flute, clarinet in Bb, percussion, piano, violin and cello
 - Mad sweet pangs through my belly and breast (2011) - two mezzo-soprano's and improvised ensemble
 - Within an egg of space* (2009) - flute, clarinet, violin, cello, accordion and piano
 
