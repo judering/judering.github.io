@@ -23,4 +23,4 @@ After completing my PhD by composition at the University of York, UK in 2009 I r
 
 For a list of works check out my [WORKS](/works) page or head to my [LISTEN](/listen) page to hear a selection of my work. To purchase cd's featuring my work check out my [PURCHASE](/purchase) page.
 
-Currently teaching composition in Trinity College Dublin and the Royal Irish Academy of Music.
+Currently teaching composition at Trinity College Dublin and the Royal Irish Academy of Music.
