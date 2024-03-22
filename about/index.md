@@ -22,3 +22,5 @@ For 3 years Laura Hyland and myself ran a bi-monthly night called Listen at Lill
 After completing my PhD by composition at the University of York, UK in 2009 I returned to Ireland to re-establish myself on the Irish music scene. Since then I have expanded my musical output by writing for theatre (OFF PLAN by Simon Doyle), putting together a multidisciplinary festival called Sensorium with two colleagues of mine from York, Angie Atmadjaja and Emily Kalies (as The-Link-Project) and being a band member of Clang Sayne and vocal trio Silver Kites. 
 
 For a list of works check out my [WORKS](/works) page or head to my [LISTEN](/listen) page to hear a selection of my work. To purchase cd's featuring my work check out my [PURCHASE](/purchase) page.
+
+Currently teaching composition in Trinity College Dublin and the Royal Irish Academy of Music
