@@ -41,6 +41,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 ## NOVEMBER 2024
 "Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29 November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
 
+## MAY 2024
+"The Weaver" will be performed by the Guinness choir in St. Andrew's church, Westland Row, Dublin on the 11th May 2024 as part of a concert celebrating the centenary of Stanford.
+
 ## MARCH 2024
 "Across the Empty Squares" for accordion and electronics will be performed by Dermot Dunne in Berlin at the Éiriocht - New Music From Ireland event that will take place across the Kuppelhalle and Betonhalle of Berlin’s silent green Kulturquartier on March 24th 2024 at 19.30.
 
