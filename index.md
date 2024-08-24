@@ -39,8 +39,14 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## DECEMBER 2024
+"New piece" commissioned by Brisbane Music Festival will be performed by Alex Raineri (piano) and Lina Andonovska (flute) on Friday 13th December at 1-2pm and 14th December 6-7pm [more info here](https://brismusicfestival.com/?fbclid=IwY2xjawE203RleHRuA2FlbQIxMAABHf3kvutj754iFDexxbuBW2ZWMKbfGbuabJBEZxTgiWe85xmZHeFtF7Q_WA_aem_JWHfnXw0ul-A5tSrOsjYOg)
+
 ## NOVEMBER 2024
 "Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29 November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
+
+## AUGUST 2024
+"Swept Through the Floods" will be performed on the 24th August by Larissa O'Grady at Fuddlefest, Wexford.
 
 ## MAY 2024
 "The Weaver" will be performed by the Guinness choir in St. Andrew's church, Westland Row, Dublin on the 11th May 2024 as part of a concert celebrating the centenary of Stanford.
