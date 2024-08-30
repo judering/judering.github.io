@@ -5,7 +5,7 @@ title: Judith Ring
 Latest orchestral performance and interview can be viewed below: 
 
 EVERYTHING WAS ASLEEP AS IF THE UNIVERSE WAS A VAST MISTAKE <br>
-Written for the National Symphony Orchestra as part of The Contemporary Music Centre's Composer Lab. The premiere performance and live broadcast on RTÉ Lyric FM  was on the 9th of January 2023 and it will be performed again in the National Concert Hall, Dublin on the 29th November 2024 conducted by Patrik Ringborg alongside Dvorak’s cello concerto and Tchaikovsky’s Symphony no.5. :
+Written for the National Symphony Orchestra as part of The Contemporary Music Centre's Composer Lab. The premiere performance and live broadcast on RTÉ Lyric FM  was on the 9th of January 2023 and it will be performed again in the National Concert Hall, Dublin on the 29th November 2024 alongside Dvorak’s cello concerto and Tchaikovsky’s Symphony no.5. conducted by Patrik Ringborg:
 <br>
 <br>
 
