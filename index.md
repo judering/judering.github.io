@@ -20,12 +20,11 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 [https://www.rte.ie/radio/lyricfm/clips/22372133/](https://www.rte.ie/radio/lyricfm/clips/22372133/)
 - Commissioned to write a piece for piano and flute for Alex Raineri and Lina Andonovska for performance in October and December 2024.
 - Commissioned by RTÉ lyric FM for the Dublin International Piano Competition to write piece for the 13th edition of the competition which will take place in February 2025.
-- Commissioned by the UCD Choral Scholars under the direction of Desmond Earley to write a piece on a poem by James Joyce from his Chamber Music collection. There are 36 poems in the collection and the longterm plan is to release CDs with 36 pieces by 36 composers. One volume has already beend released. Read more [here](https://www.ucdchoralscholars.ie) 
+- Commissioned by the UCD Choral Scholars under the direction of Desmond Earley, accompanied by Solstice ensemble, to write a piece on a poem by James Joyce from his Chamber Music collection. There are 36 poems in the collection and the longterm plan is to release CDs with 36 pieces by 36 composers. One volume has already been released. Read more [here](https://www.ucdchoralscholars.ie) 
 - Commissioned by Finding a Voice Festival to write a piece for Evlana ensemble. The premiere will take place in Clonmel on the 9th March 2024.
 - Guest composer and teacher at SoundScape festival, Blonay, Switzerland in July 2023.
 - Residency in Cill Rialaig for two weeks in the Spring of 2023.
-- Writing and researching string quartets with the aid of a bursary from the Arts Council.
-- Premiere of my orchestral piece "Everything was asleep as if the universe was a vast mistake" written for the National Symphony Orchestra of Ireland as part of The Contemporary Music Centre's composer lab project will be performed and broadcast on RTE's Lyric FM on January 9th at 9pm. 
+
 
 
 
