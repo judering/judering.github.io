@@ -10,10 +10,12 @@ title: Performances
 - Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
 
 ## Swept Through the Floods (2023) - written for Larissa O'Grady (violin and tape)
-- Hugh Lane Gallery, Sundays at noon concert. Larissa O'Grady showcase concert.
-- NMD 2023, NMDX performance showcase, 23rd April, 2023
+- Larissa O'Grady - Fuddlefest, Wexford, 24th August 2024.
+- Larissa O'Grady - Hugh Lane Gallery, Sundays at noon concert. Larissa O'Grady showcase concert.
+- Larissa O'Grady - NMD 2023, NMDX performance showcase, 23rd April, 2023
 
 ## Everything was asleep as if the universe was a vast mistake (2022) - written for the National Symphony Orchestra of Ireland as part of the Contemporary Music Centre's composer lab. 
+- National Concert Hall, 29th November 2024.
 - National Concert Hall, 9th January, 2023. Performance and live broadcast on RTÉ Lyric FM.
 
 ## Winter Wisps Softly Dissipate (2022) - written for Christian-Pierre La Marca (cello) and Félician Brut's (accordion) Music Network tour of Ireland, November 2022
@@ -159,7 +161,8 @@ Commissioned by Michelle O’Rourke with funds from the Arts Council for her voc
 ## Fine Feathers Far Below The Blue Floor (2011), for viola, piano, clarinet and tape. 
 
 Commissioned by Concorde with funds from the Arts Council.
-- Angelus concert - Brisbane Music Festival, Australia, 6th December 2024.
+- soundON festival, San Diego, Saturday, January 7, 2024, 3:00 p.m. 
+- Angelus concert - Brisbane Music Festival, Australia, 6th December 2023.
 - Concorde - National Concert Hall as part of the After Beethoven series curated by Jane O'Leary, June 2022.
 - Concorde featuring Garth Knox – Centre Culturel Irlandais, Paris, 14th October 2011
 - Concorde featuring Garth Knox – Hugh Lane Gallery, 26th June 2011
