@@ -18,7 +18,7 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 - From mid-October 2024 I will have the honour of being one of the artists-in-residence at the Internationales Künsthaus, Villa Concordia, Bamberg, Germany for 5 months alongside several other Irish and German artists. More information here: [https://www.villa-concordia.de](https://www.villa-concordia.de)
 - Interviewed as part of a two-part documentary on RTÉ Lyric FM's Lyric Feature produced by Jonathan Grimes and the Contemporary Music Centre called "We Only Want The Earth" about how Irish composers are responding to the climate crisis. You can listen back here: 
 [https://www.rte.ie/radio/lyricfm/clips/22372133/](https://www.rte.ie/radio/lyricfm/clips/22372133/)
-- Commissioned to write a piece for piano and flute for Alex Raineri and Lina Andonovska for performance in October and December 2024.
+- Commissioned by Alex Raineri for the Brisbane Music Festival to write a piece for piano and flute for himself and Lina Andonovska for performance in October and December 2024.
 - Commissioned by RTÉ lyric FM for the Dublin International Piano Competition to write piece for the 13th edition of the competition which will take place in February 2025.
 - Commissioned by the UCD Choral Scholars under the direction of Desmond Earley, accompanied by Solstice ensemble, to write a piece on a poem by James Joyce from his Chamber Music collection. There are 36 poems in the collection and the longterm plan is to release CDs with 36 pieces by 36 composers. One volume has already been released. Read more [here](https://www.ucdchoralscholars.ie) 
 - Commissioned by Finding a Voice Festival to write a piece for Evlana ensemble. The premiere will take place in Clonmel on the 9th March 2024.
@@ -40,7 +40,7 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 # RECENT AND UPCOMING PERFORMANCES
 
 ## DECEMBER 2024
-"New piece" commissioned by Brisbane Music Festival will be performed by Alex Raineri (piano) and Lina Andonovska (flute) on Friday 13th December at 1-2pm and 14th December 6-7pm [more info here](https://brismusicfestival.com/?fbclid=IwY2xjawE203RleHRuA2FlbQIxMAABHf3kvutj754iFDexxbuBW2ZWMKbfGbuabJBEZxTgiWe85xmZHeFtF7Q_WA_aem_JWHfnXw0ul-A5tSrOsjYOg)
+"All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for 2024 Brisbane Music Festival, will be performed by Alex Raineri (piano) and Lina Andonovska (flute) on Friday 13th December at 1-2pm and 14th December 6-7pm [more info here](https://brismusicfestival.com/?fbclid=IwY2xjawE203RleHRuA2FlbQIxMAABHf3kvutj754iFDexxbuBW2ZWMKbfGbuabJBEZxTgiWe85xmZHeFtF7Q_WA_aem_JWHfnXw0ul-A5tSrOsjYOg)
 
 ## NOVEMBER 2024
 "Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29 November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
