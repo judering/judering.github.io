@@ -45,6 +45,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 ## NOVEMBER 2024
 "Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29 November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
 
+## OCTOBER 2024
+"A Breath of Fresh Air" for solo flute performed by Lina Andonovska as part of First Fridays at the MoLi (Musuem of Literature Ireland) at 8pm, Friday 4th October.
+
 ## AUGUST 2024
 "Swept Through the Floods" will be performed on the 24th August by Larissa O'Grady at Fuddlefest, Wexford.
 
