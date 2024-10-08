@@ -46,6 +46,8 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 "Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29 November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
 
 ## OCTOBER 2024
+"Swept Through the Floods" for solo violin and tape will be performed by Chihiro Ono at a concert curated by composer Anselm McDonnell called "The Expanded Violin" as part of his residency as a Jerwood Composer with the London Symphony Orchestra 2023-2024. This will take place at Jerwood Hall, LSO St Luke’s at 7pm on the 12 October 2024.
+
 "A Breath of Fresh Air" for solo flute performed by Lina Andonovska as part of First Fridays at the MoLi (Musuem of Literature Ireland) at 8pm, Friday 4th October.
 
 ## AUGUST 2024
