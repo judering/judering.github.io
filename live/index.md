@@ -10,6 +10,7 @@ title: Performances
 - Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
 
 ## Swept Through the Floods (2023) - written for Larissa O'Grady (violin and tape)
+- Chihiro Ono - Jerwood Hall, LSO St. Luke's at 7pm, 12th October 2024.
 - Larissa O'Grady - Fuddlefest, Wexford, 24th August 2024.
 - Larissa O'Grady - Hugh Lane Gallery, Sundays at noon concert. Larissa O'Grady showcase concert.
 - Larissa O'Grady - NMD 2023, NMDX performance showcase, 23rd April, 2023
@@ -58,6 +59,7 @@ The Parade Tower, Kilkenny Castle
 - Lina Andonovska x 2 - written for the Music Network Butterfly Sessions as part of a response to the lockdown. We recorded this as a video broadcast with Lina dueting with herself. 
 
 ## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
+- Lina Andonovska - First Fridays - MOLI, Dublin, 8pm, 4th October 2024.
 - Lina Andonovska - Éiríocht - New Music From Ireland, Berlin, March 24th, 2024. 7.30pm
 - Lina Andonovska - Fuddle Fest 2023, Wexford, 26th August.
 - Lina Andonovska - Huddersfield Contemporary Music Festival 2022. CMC album launch. 
