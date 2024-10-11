@@ -46,7 +46,7 @@ Mark Menzies, violin
 Robert Zelickman, clarinet
 Christopher Adler, piano
 
-<center><iframe width="560" height="315" src="https://www.youtube.com/watch?v=h4PPLMaP4GU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+<center><iframe width="560" height="315" src="https://youtu.be/h4PPLMaP4GU?si=U6PplONHu0NmpPTD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
 <br>
 <br>
 
