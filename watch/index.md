@@ -38,6 +38,18 @@ Commissioned by the Sligo International Chamber Music Festival 2021. Performed b
 <br>
 <br>
 
+FINE FEATHERS FAR BELOW THE BLUE FLOOR <br>
+Originally commissioned by Concorde in 2011. Performed at the soundON Festival 2024.
+Presented by San Diego New Music and the Athenaeum Music & Arts Library January 7, 2024
+Performed by NOISE
+Mark Menzies, violin
+Robert Zelickman, clarinet
+Christopher Adler, piano
+
+<center><iframe width="560" height="315" src="https://www.youtube.com/watch?v=h4PPLMaP4GU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></center>
+<br>
+<br>
+
 IS IT OVER YET? <br>
 Written for and performed by Lina Andonovska and herself. Commissioned by Music Network for The Butterfly Sessions - a series of online performances in response to the COVID19 lockdown. 
 
