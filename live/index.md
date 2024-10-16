@@ -3,7 +3,11 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
-## The River Was Never Afraid - written for Evlana ensemble
+## All You Can Do Is Hang On For Dear Life (2024) - flute and piano
+- Lina Andonovska and Alex Raineri, Queens's University, Belfast, October 17th, Harty Room, Music Building, 
+13.10.
+
+## The River Was Never Afraid (2024) - written for Evlana ensemble
 - Evlana ensemble, Finding a Voice Festival, Clonmel, Ireland, 7,30pm, STAC chapel. 
 
 ## The Sylph (2017) - one of the Ring Lieder collection. 

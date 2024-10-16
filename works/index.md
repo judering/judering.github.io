@@ -13,6 +13,7 @@ List of compositions from 1999 - 2024
 
 <h2 id="SOLO">SOLO</h2>
 
+- Something Beyond (2024) - piano
 - Swept Through the Floods* (2023) - violin
 - Across the Empty Squares* (2021) - accordion
 - A Breath of Fresh Air (2019) - flute
@@ -40,6 +41,7 @@ List of compositions from 1999 - 2024
 
 <h2 id="DUO">DUO</h2>
 
+- All You Can Do Is Hang On For Dear Life (2024)- flute and piano
 - Winter Wisps Softly Dissipate (2022)- accordion and cello
 - Is it over yet? (2020) - two flutes
 - Swells and Shoots (2016) - viola and cello
