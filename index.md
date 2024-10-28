@@ -16,6 +16,8 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 # CURRENT PROJECTS, NEWS AND PLANS
 - From mid-October 2024 I will have the honour of being one of the artists-in-residence at the Internationales Künsthaus, Villa Concordia, Bamberg, Germany for 5 months alongside several other Irish and German artists. More information here: [https://www.villa-concordia.de](https://www.villa-concordia.de)
+- "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 will be featured on a CD release of flute and piano music by Alex Raineri and Lina Andonovska for release on Parma Recordings in 2025. 
+- "Swept Through the Floods" for violin and electronics will feature on a new CD from violinist Larissa O'Grady who commissioned 6 composers to write pieces for her. CD launch at Contemporary Music Centre, Thursday 7th November, 6 - 8pm - free admission. Released on Farpoint Recordings. 
 - Interviewed as part of a two-part documentary on RTÉ Lyric FM's Lyric Feature produced by Jonathan Grimes and the Contemporary Music Centre called "We Only Want The Earth" about how Irish composers are responding to the climate crisis. You can listen back here: 
 [https://www.rte.ie/radio/lyricfm/clips/22372133/](https://www.rte.ie/radio/lyricfm/clips/22372133/)
 - Commissioned by Alex Raineri for the Brisbane Music Festival to write a piece for piano and flute for himself and Lina Andonovska for performance in October and December 2024.
@@ -43,7 +45,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for 2024 Brisbane Music Festival, will be performed by Alex Raineri (piano) and Lina Andonovska (flute) on Friday 13th December at 1-2pm and 14th December 6-7pm [more info here](https://brismusicfestival.com/?fbclid=IwY2xjawE203RleHRuA2FlbQIxMAABHf3kvutj754iFDexxbuBW2ZWMKbfGbuabJBEZxTgiWe85xmZHeFtF7Q_WA_aem_JWHfnXw0ul-A5tSrOsjYOg)
 
 ## NOVEMBER 2024
-"Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29 November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
+"Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the SETU Arena in Waterford on the 30th November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
+
+"Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29th November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
 
 "Swept Through the Floods" for solo violin and tape will be performed in Berlin by Larissa O'Grady at Anima Mundi #5 on the 1st of November, 19.00 at Jugend(Widerstands)museum Galiläakirche, Berlin.
 

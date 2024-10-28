@@ -14,14 +14,16 @@ title: Performances
 - Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
 
 ## Swept Through the Floods (2023) - written for Larissa O'Grady (violin and tape)
+- Larissa O'Grady - Jugend (Widerstands) museum Galiläakirche, Berlin, Berlin (DE) at 7pm, 1st Nov 2024.
 - Chihiro Ono - Jerwood Hall, LSO St. Luke's at 7pm, 12th October 2024.
 - Larissa O'Grady - Fuddlefest, Wexford, 24th August 2024.
 - Larissa O'Grady - Hugh Lane Gallery, Sundays at noon concert. Larissa O'Grady showcase concert.
 - Larissa O'Grady - NMD 2023, NMDX performance showcase, 23rd April, 2023
 
 ## Everything was asleep as if the universe was a vast mistake (2022) - written for the National Symphony Orchestra of Ireland as part of the Contemporary Music Centre's composer lab. 
-- National Concert Hall, 29th November 2024.
-- National Concert Hall, 9th January, 2023. Performance and live broadcast on RTÉ Lyric FM.
+- National Symphony Orchestra, SETU Arena, Waterford, 30th November 2024
+- National Symphony Orchestra, National Concert Hall, 29th November 2024.
+- National Symphony Orchestra, National Concert Hall, 9th January, 2023. Performance and live broadcast on RTÉ Lyric FM.
 
 ## Winter Wisps Softly Dissipate (2022) - written for Christian-Pierre La Marca (cello) and Félician Brut's (accordion) Music Network tour of Ireland, November 2022
 Commissioned by Music Network.
