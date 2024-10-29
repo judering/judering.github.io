@@ -9,7 +9,7 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 <br>
 <br>
 
-<center><iframe width="560" height="315" src="https://youtu.be/vB99ATend8c?t=2269" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>,</center>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/vB99ATend8c?si=4atoEA_Whcas71-e&amp;start=2269" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></center>
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
