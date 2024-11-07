@@ -33,6 +33,9 @@ View the poems [here](poems)
 <br>
 <br>
 <br>
+<div class="photo-with-credit">
+  <img src="/assets/img/whatwas.jpg" width="180" height="180">
+</div>Six pieces - Larissa O'Grady's album on farpoint records features a piece that she commissioned from me called "Swept Through the Floods" for violin and electronics: [bandcamp](https://larissaogrady.bandcamp.com/album/six-new-works-for-violin)
 <br>
 <br>
 <br>
