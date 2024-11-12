@@ -47,6 +47,8 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 "Everything Was Asleep As If The Universe Was A Vast Mistake" will be performed by the National Symphony Orchestra at the National Concert Hall on the 29th November 2024, conducted by Patrik Ringborg alongside Dvorak's cello concerto and Tchaikovsky's Symphony no.5.
 
+"Swept Through the Floods" for solo violin and tape will be performed by Larissa O'Grady at the launch of her new CD "Six new works for violin" at the Contemporary Music Centre, Dublin on the 7th November, 7pm. 
+
 "Swept Through the Floods" for solo violin and tape will be performed in Berlin by Larissa O'Grady at Anima Mundi #5 on the 1st of November, 19.00 at Jugend(Widerstands)museum Galiläakirche, Berlin.
 
 ## OCTOBER 2024
