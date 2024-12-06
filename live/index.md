@@ -4,6 +4,7 @@ title: Performances
 # PERFORMANCES (by piece):
 
 ## All You Can Do Is Hang On For Dear Life (2024) - flute and piano
+- Lina Andonovska and Alex Raineri, Fourth Wall Arts, Brisbane City, Australia, December 13th (1-2pm) and 14th (6-7pm). 
 - Lina Andonovska and Alex Raineri, Queens's University, Belfast, October 17th, Harty Room, Music Building, 
 13.10.
 
@@ -14,6 +15,8 @@ title: Performances
 - Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
 
 ## Swept Through the Floods (2023) - written for Larissa O'Grady (violin and tape)
+- Rebecca Wagner - Internationales Künstlerhaus Villa Concordia, 17th December, 7pm.
+- Larissa O'Grady - Contemporary Music Centre, Dublin, 7th November, 6-8pm.
 - Larissa O'Grady - Jugend (Widerstands) museum Galiläakirche, Berlin, Berlin (DE) at 7pm, 1st Nov 2024.
 - Chihiro Ono - Jerwood Hall, LSO St. Luke's at 7pm, 12th October 2024.
 - Larissa O'Grady - Fuddlefest, Wexford, 24th August 2024.
@@ -73,6 +76,7 @@ The Parade Tower, Kilkenny Castle
 - Lina Andonovska - Green Note - London - 11th August 2022.
 
 ## Wildwood (2018) for Martin Johnson - cello solo
+- Nikola Jovanovic - Internationales Künstlerhaus, Villa Concordia, Bamberg, 17th December, 7pm
 - Martin Johnson - Invisible Shadows, The Mac, Belfast, CMC promotional CD launch, 26th January 2023
 - Martin Johnson - Premiere performance, Seamus Heaney Homeplace, 17th February 2022
 - Martin Johnson - Hugh Lane Gallery, 20 September 2020 (cancelled)
