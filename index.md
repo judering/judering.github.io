@@ -39,13 +39,13 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
 # RECENT AND UPCOMING PERFORMANCES
 
-## APRIL
+## APRIL 2025
 "The River Was Never Afraid" for Evlana ensemble will be performed at New Music Dublin at 5.30pm on the 6th April in the Kevin Barry Room. 
 
-## FEBRUARY
+## FEBRUARY 2025
 "Of Woods and Water" for string quartet will be performed by ConTempo as part of the Galway Music Residency programme celebrating World Wetlands Day on the 1st February, 2024 at 5.30pm in Connemara National Park.
 
-## JANUARY
+## JANUARY 2025
 "Swept Through the Floods" for violin and electronics, performed by Rebekka Wagner at the 35. Bamberg Kurzfilmtage at the Kurzfilmklub on the 25th January, 2024 at 6pm
 
 ## DECEMBER 2024
