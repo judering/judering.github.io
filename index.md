@@ -52,7 +52,7 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 ## DECEMBER 2024
 "Beyond the Woods" and "Invisible Scamper" from my cello suite WILDWOOD will be performed by Nikola Jovanovic at my presentation at the Internationales Künstlerhaus Villa Condordia, Bamberg on December 17th at 7pm. 
 
-"Swept Through the Floods" will be performed by Rebecca Wagner at my presentation at the Internationales Künstlerhaus Villa Condordia, Bamberg on December 17th at 7pm. 
+"Swept Through the Floods" will be performed by Rebekka Wagner at my presentation at the Internationales Künstlerhaus Villa Condordia, Bamberg on December 17th at 7pm. 
 
 "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for 2024 Brisbane Music Festival, will be performed by Alex Raineri (piano) and Lina Andonovska (flute) on Friday 13th December at 1-2pm and 14th December 6-7pm [more info here](https://brismusicfestival.com/?fbclid=IwY2xjawE203RleHRuA2FlbQIxMAABHf3kvutj754iFDexxbuBW2ZWMKbfGbuabJBEZxTgiWe85xmZHeFtF7Q_WA_aem_JWHfnXw0ul-A5tSrOsjYOg)
 
