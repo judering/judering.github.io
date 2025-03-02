@@ -50,6 +50,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 ## JANUARY 2025
 "Swept Through the Floods" for violin and electronics, performed by Rebekka Wagner at the 35. Bamberg Kurzfilmtage at the Kurzfilmklub on the 25th January, 2024 at 6pm
 
+## MARCH 2025
+"Flux" for Ondes Martenot by myself and Nathalie Forget will be performed by Nathalie in Église Saint-Pierre de Montmartre at 6pm on the 2nd March. 
+
 ## DECEMBER 2024
 "Beyond the Woods" and "Invisible Scamper" from my cello suite WILDWOOD will be performed by Nikola Jovanovic at my presentation at the Internationales Künstlerhaus Villa Condordia, Bamberg on December 17th at 7pm. 
 
