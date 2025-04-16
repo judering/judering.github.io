@@ -9,13 +9,16 @@ title: Performances
 13.10.
 
 ## The River Was Never Afraid (2024) - written for Evlana ensemble
+- Evlana ensemble, New Music Dublin, 5.30pm, 6th April, Kevein Barry room.
 - Evlana ensemble, Finding a Voice Festival, Clonmel, Ireland, 7,30pm, STAC chapel. 
 
 ## The Sylph (2017) - one of the Ring Lieder collection. 
 - Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
 
 ## Swept Through the Floods (2023) - written for Larissa O'Grady (violin and tape)
-- Rebecca Wagner - Internationales Künstlerhaus Villa Concordia, 17th December, 7pm.
+- Rebekka Wagner - Internationales Künstlerhaus Villa Concordia, Bamberg, 27th May, 7pm
+- Rebekka Wagner - 35. Bamberg Kurzfilmtage at the Kurzfilmklub on the 25th January, 2024 at 6pm
+- Rebekka Wagner - Internationales Künstlerhaus Villa Concordia, 17th December, 7pm.
 - Larissa O'Grady - Contemporary Music Centre, Dublin, 7th November, 6-8pm.
 - Larissa O'Grady - Jugend (Widerstands) museum Galiläakirche, Berlin, Berlin (DE) at 7pm, 1st Nov 2024.
 - Chihiro Ono - Jerwood Hall, LSO St. Luke's at 7pm, 12th October 2024.
@@ -49,6 +52,8 @@ The Large Room, City Hall, Waterford
 The Parade Tower, Kilkenny Castle
 
 ## Of Woods and Water (2022) - written for the Appalachian Chamber Music Festival, USA
+- ConTempo, St. Nicholas’ Collegiate Church, Galway, 4th February, 2025, 1.10pm
+- ConTempo, Connemara National Park, 1st February, 2025, 5.30pm
 - Festival Finale, Happy Retreat, Charlestown, VA, on the 28 August 2022
 - Old Stone School, Hillsboro, VA, on the 27th August 2022
 - premiere at the opening concert, Barns of Rose Hill, Berryville, VA, on the 18th August 2022.
@@ -68,6 +73,7 @@ The Parade Tower, Kilkenny Castle
 - Lina Andonovska x 2 - written for the Music Network Butterfly Sessions as part of a response to the lockdown. We recorded this as a video broadcast with Lina dueting with herself. 
 
 ## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
+- Lina Andonovska - DCU, 9th February, 2025
 - Lina Andonovska - First Fridays - MOLI, Dublin, 8pm, 4th October 2024.
 - Lina Andonovska - Éiríocht - New Music From Ireland, Berlin, March 24th, 2024. 7.30pm
 - Lina Andonovska - Fuddle Fest 2023, Wexford, 26th August.

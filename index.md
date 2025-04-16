@@ -44,6 +44,8 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 "4-Play" for percussion quartet will be performed by the RIAM percussion ensemble several times in the US on Monday 21st April at William Paterson University,  Wayne NJ, 7 pm school of music recital hall; Tuesday 22nd April at NYU school of music at 7.15pm; Thursday 24th April at Lehman College, School of music recital hall at 1pm.
 
+"A Breath of Fresh Air" performed by Lina Andonovska in DCU on the 9th of April. 
+
 "The River Was Never Afraid" for Evlana ensemble will be performed at New Music Dublin at 5.30pm on the 6th April in the Kevin Barry Room. 
 
 ## MARCH 2025
