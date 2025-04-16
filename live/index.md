@@ -59,6 +59,7 @@ The Parade Tower, Kilkenny Castle
 - premiere at the opening concert, Barns of Rose Hill, Berryville, VA, on the 18th August 2022.
 
 ## The Weaver (2020) - written for The Guinness Choir under the direction of David Milne
+- The Guinness Choir - St. Andrew’s church, Westland Row, Dublin on the 11th May 2024 
 - The Guinness Choir - premiere at St. Patrick's Cathedral, May 2022.
 
 ## Twilight (2018) - arranged by Malachy Robinson for double bass
