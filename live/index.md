@@ -262,6 +262,9 @@ University, 28 February 2008
 November 2007
  
 ## 4-PLAY (2007), for percussion quartet:
+- RIAM percussion ensemble, Monday 21st April at William Paterson University,  Wayne NJ, USA, 7 pm school of music recital hall, 2025
+- RIAM percussion ensemble, Tuesday 22nd April at NYU school of music, USA at 7.15pm, 2025
+- RIAM percussion ensemble, Thursday 24th April at Lehman College, School of music recital hall, USA at 1pm, 2025
 - Percussemble (percussion quartet), Emmaus kirche, Berlin, 1st November 2007
  
 ## Panoval (2006) for piano, violin and tape.
