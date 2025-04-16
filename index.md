@@ -37,6 +37,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## MAY 2025
+"Swept Through the Floods" for violin and electronics will be performed by Rebekka Wagner at the Internationales Künstlerhaus Villa Concordia, Bamberg, on the 27th May at the University’s society meeting.
+
 ## APRIL 2025
 
 "4-Play" for percussion quartet will be performed by the RIAM percussion ensemble several times in the US on Monday 21st April at William Paterson University,  Wayne NJ, 7 pm school of music recital hall; Tuesday 22nd April at NYU school of music at 7.15pm; Thursday 24th April at Lehman College, School of music recital hall at 1pm.
