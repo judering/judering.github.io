@@ -135,6 +135,7 @@ The Parade Tower, Kilkenny Castle
 - Performed by Martin and Adele Johnson at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
 
 ## Swelt Belly At Dawn (2013) for Concorde. Piece for trio – clarinet, violin and cello.
+- Concorde - Hugh Lane Gallery, September 14th, 2025
 - soundSCAPE musicians, Blonay, Switzerland, 12th July, 2023
 - Evlana ensemble - performed at New Music Dublin 2021. Friday 23rd April. Evlana concert 1. 
 - Hard Rain Ensemble - perform at International Woman's day at the Crescent Arts Centre, Belfast on Wed 8th March 2018.

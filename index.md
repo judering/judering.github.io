@@ -37,6 +37,9 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## SEPTEMBER 2025
+"Swelt Belly at Dawn" will be performed by Concorde at the Hugh Lane Gallery "Sundays at Noon" series on the 14th September, 2025.
+
 ## MAY 2025
 "Swept Through the Floods" for violin and electronics will be performed by Rebekka Wagner at the Internationales Künstlerhaus Villa Concordia, Bamberg, on the 27th May at the University’s society meeting.
 
