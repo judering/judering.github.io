@@ -13,6 +13,7 @@ Written for the National Symphony Orchestra as part of The Contemporary Music Ce
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
+- Luail - Ireland's National Dance Company - Moving in Collaboration International Intensive 2025 - Co-leading a one week workshop in July 8th-12th, 2025, in collaboration with choreographers Liz Roche, Jonathan Burrows and composer Mel Mercier at the Irish World Academy, UL, Limerick. [Click here for more info](https://luail.ie/production/moving-in-collaboration-international-intensive-2025/)
 - From mid-October 2024 I will have the honour of being one of the artists-in-residence at the Internationales Künstlerhaus, Villa Concordia, Bamberg, Germany for 5 months alongside several other Irish and German artists. More information here: [https://www.villa-concordia.de](https://www.villa-concordia.de)
 - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 will be featured on a CD release of flute and piano music by Alex Raineri and Lina Andonovska for release on Parma Recordings in 2025. 
 - "Swept Through the Floods" for violin and electronics will feature on a new CD from violinist Larissa O'Grady who commissioned 6 composers to write pieces for her. CD launch at Contemporary Music Centre, Thursday 7th November, 6 - 8pm - free admission. Released on Farpoint Recordings. 
