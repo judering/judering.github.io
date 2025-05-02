@@ -6,13 +6,13 @@ title: Judith Ring
 
 # CURRENT PROJECTS, NEWS AND PLANS
 - Luail - Ireland's National Dance Company - Moving in Collaboration International Intensive 2025 - Co-leading a one week workshop in July 8th-12th, 2025, in collaboration with choreographers Liz Roche, Jonathan Burrows and composer Mel Mercier at the Irish World Academy, UL, Limerick. [Click here for more info](https://luail.ie/production/moving-in-collaboration-international-intensive-2025/)
-- From mid-October 2024 I will have the honour of being one of the artists-in-residence at the Internationales Künstlerhaus, Villa Concordia, Bamberg, Germany for 5 months alongside several other Irish and German artists. More information here: [https://www.villa-concordia.de](https://www.villa-concordia.de)
+- From mid-October 2024 I had the honour of being one of the artists-in-residence at the Internationales Künstlerhaus, Villa Concordia, Bamberg, Germany for 5 months alongside several other Irish and German artists. More information here: [https://www.villa-concordia.de](https://www.villa-concordia.de)
 - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 will be featured on a CD release of flute and piano music by Alex Raineri and Lina Andonovska for release on Parma Recordings in 2025. 
-- "Swept Through the Floods" for violin and electronics will feature on a new CD from violinist Larissa O'Grady who commissioned 6 composers to write pieces for her. CD launch at Contemporary Music Centre, Thursday 7th November, 6 - 8pm - free admission. Released on Farpoint Recordings. 
+- "Swept Through the Floods" for violin and electronics features on a new CD from violinist Larissa O'Grady who commissioned 6 composers to write pieces for her. Released on [Farpoint Recordings](https://larissaogrady.bandcamp.com/album/six-new-works-for-violin)
 - Interviewed as part of a two-part documentary on RTÉ Lyric FM's Lyric Feature produced by Jonathan Grimes and the Contemporary Music Centre called "We Only Want The Earth" about how Irish composers are responding to the climate crisis. You can listen back here: 
 [https://www.rte.ie/radio/lyricfm/clips/22372133/](https://www.rte.ie/radio/lyricfm/clips/22372133/)
 - Commissioned by Alex Raineri for the Brisbane Music Festival to write a piece for piano and flute for himself and Lina Andonovska for performance in October and December 2024.
-- Commissioned by RTÉ lyric FM for the Dublin International Piano Competition to write piece for the 13th edition of the competition which will take place in February 2025.
+- Commissioned by RTÉ lyric FM for the Dublin International Piano Competition to write piece for the 13th edition of the competition the quarter finals of which will take place in May 2025.
 - Commissioned by the UCD Choral Scholars under the direction of Desmond Earley, accompanied by Solstice ensemble, to write a piece on a poem by James Joyce from his Chamber Music collection. There are 36 poems in the collection and the longterm plan is to release CDs with 36 pieces by 36 composers. One volume has already been released. Read more [here](https://www.ucdchoralscholars.ie) 
 
 
