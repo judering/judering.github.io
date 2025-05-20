@@ -6,26 +6,15 @@ title: Judith Ring
 
 # CURRENT PROJECTS, NEWS AND PLANS
 - Luail - Ireland's National Dance Company - Moving in Collaboration International Intensive 2025 - Co-leading a one week workshop in July 8th-12th, 2025, in collaboration with choreographers Liz Roche, Jonathan Burrows and composer Mel Mercier at the Irish World Academy, UL, Limerick. [Click here for more info](https://luail.ie/production/moving-in-collaboration-international-intensive-2025/)
+- The 13th Dublin International Piano Competition took place in May 2025. I was one of 4 composers (myself, Ailís Ní Ríain, David Coonan and Roger Doyle) commissioned by RTÉ Lyric FM to write piece for the quarter finalists of the competition which took place from the 9th-11th May. I was privileged to have 16 out of 26 quarter finalists choose my piece to perform as part of their 40 minute programme and it was an incredible experience to hear them all. More info here: [dipc.ie](http://dipc.ie)
 - From mid-October 2024 I had the honour of being one of the artists-in-residence at the Internationales Künstlerhaus, Villa Concordia, Bamberg, Germany for 5 months alongside several other Irish and German artists. More information here: [https://www.villa-concordia.de](https://www.villa-concordia.de)
 - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 will be featured on a CD release of flute and piano music by Alex Raineri and Lina Andonovska for release on Parma Recordings in 2025. 
 - "Swept Through the Floods" for violin and electronics features on a new CD from violinist Larissa O'Grady who commissioned 6 composers to write pieces for her. Released on [Farpoint Recordings](https://larissaogrady.bandcamp.com/album/six-new-works-for-violin)
 - Interviewed as part of a two-part documentary on RTÉ Lyric FM's Lyric Feature produced by Jonathan Grimes and the Contemporary Music Centre called "We Only Want The Earth" about how Irish composers are responding to the climate crisis. You can listen back here: 
 [https://www.rte.ie/radio/lyricfm/clips/22372133/](https://www.rte.ie/radio/lyricfm/clips/22372133/)
 - Commissioned by Alex Raineri for the Brisbane Music Festival to write a piece for piano and flute for himself and Lina Andonovska for performance in October and December 2024.
-- Commissioned by RTÉ lyric FM for the Dublin International Piano Competition to write piece for the 13th edition of the competition the quarter finals of which will take place in May 2025.
 - Commissioned by the UCD Choral Scholars under the direction of Desmond Earley, accompanied by Solstice ensemble, to write a piece on a poem by James Joyce from his Chamber Music collection. There are 36 poems in the collection and the longterm plan is to release CDs with 36 pieces by 36 composers. One volume has already been released. Read more [here](https://www.ucdchoralscholars.ie) 
 
-
-
-
-
-
-# PODCAST APPEARANCES
-[Click here](https://www.cmc.ie/amplify/episode-85) Sounding the Alarm - new music and the climate emergency: amplify LIVE at New Music Dublin 2023. A panel discussion hosted by Jonathan Grimes of The Contemporary Music Centre, featuring myself, Juergen Simpson, Karen Power and Robert Curgenven.
-
-[Click here](https://www.cmc.ie/amplify/episode-40) listen back to a group chat for New Music Dublin 2021. We talk about the concerts and works that were performed.
-
-[Click here](https://www.cmc.ie/amplify/episode-23?fbclid=IwAR1yTkaISEj2c1RTysQbuoYwc-zGraPFNfA4bIaPtzrelcU6nhd8ZFmj4Bc) to listen back to a chat I had with Jonathan Grimes of the Contemporary Music Centre, Ireland. We talk about working during a pandemic and how my music has evolved over the last 20 odd years.
  
  
 # RECENT AND UPCOMING PERFORMANCES
@@ -36,7 +25,7 @@ title: Judith Ring
 ## MAY 2025
 "Swept Through the Floods" for violin and electronics will be performed by Rebekka Wagner at the Internationales Künstlerhaus Villa Concordia, Bamberg, on the 27th May at the University’s society meeting.
 
-"Something Beyond" for solo piano, specially commissioned piece by RTÉ Lyric FM, written for the Dublin International Piano Competition will be performed at the quarter finals by some of this years competitors from the 9th-11th May. 
+"Something Beyond" for solo piano, specially commissioned piece by RTÉ Lyric FM, written for the Dublin International Piano Competition will be performed at the quarter finals by some of this years competitors from the 9th-11th May. The 16 competitors who performed my piece were: Charles Berofsky, Elia Cecino, Girim Choi, Dida Condria, Caoyuan Feng, Yilei Hao, Carter Johnson, Muzi Li, Callum McLachlan, Geunpyo Park, Mariamna Sherling, Haozhou Wang, Jiapeng Wang, Jihyung Youn, Ido Zeev and Shuhang Zhao.
 
 ## APRIL 2025
 

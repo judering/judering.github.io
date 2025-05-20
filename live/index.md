@@ -3,6 +3,25 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Something Beyond - solo piano
+Performed at the quarter finals of the Dublin International Piano Competition 2025 by:
+- Charles Berofsky
+- Elia Cecino 
+- Girim Choi 
+- Dida Condria
+- Caoyuan Feng
+- Yilei Hao
+- Carter Johnson
+- Muzi Li
+- Callum McLachlan 
+- Geunpyo Park 
+- Mariamna Sherling 
+- Haozhou Wang 
+- Jiapeng Wang
+- Jihyung Youn 
+- Ido Zeev 
+- Shuhang Zhao
+
 ## All You Can Do Is Hang On For Dear Life (2024) - flute and piano
 - Lina Andonovska and Alex Raineri, Fourth Wall Arts, Brisbane City, Australia, December 13th (1-2pm) and 14th (6-7pm). 
 - Lina Andonovska and Alex Raineri, Queens's University, Belfast, October 17th, Harty Room, Music Building, 
