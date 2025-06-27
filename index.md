@@ -22,6 +22,9 @@ title: Judith Ring
 ## SEPTEMBER 2025
 "Swelt Belly at Dawn" will be performed by Concorde at the Hugh Lane Gallery "Sundays at Noon" series on the 14th September, 2025.
 
+## JUNE 2025
+"Flux" a collaborative piece by myself and Nathalie Forget will be performed at the Conservatoire National Supérieur de Musique et de Danse de Paris (CNSMDP) on the 20th June at an audition concert by the Ondes Martenot class. 
+
 ## MAY 2025
 "Swept Through the Floods" for violin and electronics will be performed by Rebekka Wagner at the Internationales Künstlerhaus Villa Concordia, Bamberg, on the 27th May at the University’s society meeting.
 
