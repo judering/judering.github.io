@@ -19,6 +19,16 @@ title: Judith Ring
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## DECEMBER 2025
+"Swells and Shoots" for viola and cello will be performed by Crash ensemble at the Hugh Lane Gallery, Sundays at Noon - 7th December, 12 noon
+
+## NOVEMBER 2025
+"Winter Wisps Softly Dissipate" for accordion and cello will be performed by Cellist Bianca Breitfeld from Wiesbaden and accordionist Janne Valkeajoki from Helsinki in Bamberg, Germany, at the Johanniskapelle on Sunday, 30th November at 11am as part of the festival "Tage der Neuen Musik Bamberg". 
+
+"Swells and Shoots" for viola and cello will be performed by Crash ensemble at Riverbank Arts Centre, Newbridge - 19th November, 8pm
+
+"Raise a Tragic Chorus in a Gale" for string quartet will be performed by Contempo as part of the Music Connects "Stormy Weather" programme on Tuesday 4th November at 1:10pm in St Nicholas’ Collegiate Church, Galway.
+
 ## SEPTEMBER 2025
 "Swelt Belly at Dawn" will be performed by Concorde at the Hugh Lane Gallery "Sundays at Noon" series on the 14th September, 2025.
 
