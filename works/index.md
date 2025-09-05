@@ -80,7 +80,7 @@ List of compositions from 1999 - 2024
 
 <h2 id="CHOIR">CHOIR</h2>
 
-- What Counsel Has the Hooded Moon - SMATBB - chamber choir
+- What Counsel Has the Hooded Moon (2024) - SMATBB - chamber choir
 - The Weaver (2020) - SSAATTB - full choir
 - ...from a galaxy of dust we were unspun... (2012) - SSSSAAAATTB - chamber choir
 
