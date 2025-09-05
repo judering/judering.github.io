@@ -38,7 +38,7 @@ View the poems [here](poems)
 <br>
 <br>
 <div class="photo-with-credit">
-  <img src="/assets/img/parallelplay.jpg" width="180" height="180">
+  <img src="/assets/img/parallel_play.jpg" width="180" height="180">
 </div>Parallel Play - Lina Andonovska and Alex Raineri's album for flute and piano features my piece "All You Can Do Is Hang On For Dear Life" commissioned by the Brisbane Music Festival in 2024 and released on Navona. [linktree](https://lnk.fuga.com/linaandonovskaalexraineri_parallelplay)
 <br>
 <br>
