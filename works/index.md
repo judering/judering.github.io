@@ -64,6 +64,7 @@ List of compositions from 1999 - 2024
 
 <h2 id="QUARTET">QUARTET</h2>
 
+- Raise a Tragic Chorus in a Gale (2025 in progress) - string quartet
 - Of Woods and Water (2022) - string quartet
 - 4-play (2007) - percussion quartet
 
