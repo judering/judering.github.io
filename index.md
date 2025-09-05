@@ -5,10 +5,11 @@ title: Judith Ring
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
+- Currently completing a string quartet "Raise a Tragic Chorus in a Gale". Premiere will be performed by Contempo as part of the Music Connects "Stormy Weather" programme on Tuesday 4th November at 1:10pm in St Nicholas’ Collegiate Church, Galway.
+- NEW RELEASE - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 is featured on a release of flute and piano music called "Parallel Play" by Alex Raineri and Lina Andonovska released on Navona, Parma Recordings in August 2025. [links to album](https://lnk.fuga.com/linaandonovskaalexraineri_parallelplay)
 - Luail - Ireland's National Dance Company - Moving in Collaboration International Intensive 2025 - Co-leading a one week workshop in July 8th-12th, 2025, in collaboration with choreographers Liz Roche, Jonathan Burrows and composer Mel Mercier at the Irish World Academy, UL, Limerick. [Click here for more info](https://luail.ie/production/moving-in-collaboration-international-intensive-2025/)
 - The 13th Dublin International Piano Competition took place in May 2025. I was one of 4 composers (myself, Ailís Ní Ríain, David Coonan and Roger Doyle) commissioned by RTÉ Lyric FM to write piece for the quarter finalists of the competition which took place from the 9th-11th May. I was privileged to have 16 out of 26 quarter finalists choose my piece to perform as part of their 40 minute programme and it was an incredible experience to hear them all. More info here: [dipc.ie](http://dipc.ie)
-- From mid-October 2024 until mid-March 2025 I had the honour of being one of the artists-in-residence at the Internationales Künstlerhaus, Villa Concordia, Bamberg, Germany for 5 months alongside several other Irish and German artists. More information here: [https://www.villa-concordia.de](https://www.villa-concordia.de)
-- "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 will be featured on a CD release of flute and piano music by Alex Raineri and Lina Andonovska for release on Parma Recordings in 2025. 
+- From mid-October 2024 until mid-March 2025 I had the honour of being one of the artists-in-residence at the Internationales Künstlerhaus, Villa Concordia, Bamberg, Germany for 5 months alongside several other Irish and German artists. More information here: [https://www.villa-concordia.de](https://www.villa-concordia.de) 
 - "Swept Through the Floods" for violin and electronics features on a new CD from violinist Larissa O'Grady who commissioned 6 composers to write pieces for her. Released on [Farpoint Recordings](https://larissaogrady.bandcamp.com/album/six-new-works-for-violin)
 - Interviewed as part of a two-part documentary on RTÉ Lyric FM's Lyric Feature produced by Jonathan Grimes and the Contemporary Music Centre called "We Only Want The Earth" about how Irish composers are responding to the climate crisis. You can listen back here: 
 [https://www.rte.ie/radio/lyricfm/clips/22372133/](https://www.rte.ie/radio/lyricfm/clips/22372133/)
@@ -27,7 +28,7 @@ title: Judith Ring
 
 "Swells and Shoots" for viola and cello will be performed by Crash ensemble at Riverbank Arts Centre, Newbridge - 19th November, 8pm
 
-"Raise a Tragic Chorus in a Gale" for string quartet will be performed by Contempo as part of the Music Connects "Stormy Weather" programme on Tuesday 4th November at 1:10pm in St Nicholas’ Collegiate Church, Galway.
+"Raise a Tragic Chorus in a Gale" for string quartet. Premiere will be performed by Contempo as part of the Music Connects "Stormy Weather" programme on Tuesday 4th November at 1:10pm in St Nicholas’ Collegiate Church, Galway.
 
 ## SEPTEMBER 2025
 "Swelt Belly at Dawn" will be performed by Concorde at the Hugh Lane Gallery "Sundays at Noon" series on the 14th September, 2025.
