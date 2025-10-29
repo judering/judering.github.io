@@ -5,7 +5,7 @@ title: Judith Ring
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
-- Currently completing a string quartet "Raise a Tragic Chorus in a Gale". Premiere will be performed by Contempo as part of the Music Connects "Stormy Weather" programme on Tuesday 4th November at 1:10pm in St Nicholas’ Collegiate Church, Galway.
+- Currently completing a string quartet "Raise a Tragic Chorus in a Gale". Premiere will be performed early in the new year by Contempo as part of the Music Connects series in St Nicholas’ Collegiate Church, Galway.
 - NEW RELEASE - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 is featured on a release of flute and piano music called "Parallel Play" by Alex Raineri and Lina Andonovska released on Navona, Parma Recordings in August 2025. [links to album](https://lnk.fuga.com/linaandonovskaalexraineri_parallelplay)
 - Luail - Ireland's National Dance Company - Moving in Collaboration International Intensive 2025 - Co-leading a one week workshop in July 8th-12th, 2025, in collaboration with choreographers Liz Roche, Jonathan Burrows and composer Mel Mercier at the Irish World Academy, UL, Limerick. [Click here for more info](https://luail.ie/production/moving-in-collaboration-international-intensive-2025/)
 - The 13th Dublin International Piano Competition took place in May 2025. I was one of 4 composers (myself, Ailís Ní Ríain, David Coonan and Roger Doyle) commissioned by RTÉ Lyric FM to write piece for the quarter finalists of the competition which took place from the 9th-11th May. I was privileged to have 16 out of 26 quarter finalists choose my piece to perform as part of their 40 minute programme and it was an incredible experience to hear them all. More info here: [dipc.ie](http://dipc.ie)
@@ -27,8 +27,6 @@ title: Judith Ring
 "Winter Wisps Softly Dissipate" for accordion and cello will be performed by Cellist Bianca Breitfeld from Wiesbaden and accordionist Janne Valkeajoki from Helsinki in Bamberg, Germany, at the Johanniskapelle on Sunday, 30th November at 11am as part of the festival "Tage der Neuen Musik Bamberg". 
 
 "Swells and Shoots" for viola and cello will be performed by Crash ensemble at Riverbank Arts Centre, Newbridge - 19th November, 8pm
-
-"Raise a Tragic Chorus in a Gale" for string quartet. Premiere will be performed by Contempo as part of the Music Connects "Stormy Weather" programme on Tuesday 4th November at 1:10pm in St Nicholas’ Collegiate Church, Galway.
 
 ## SEPTEMBER 2025
 "Swelt Belly at Dawn" will be performed by Concorde at the Hugh Lane Gallery "Sundays at Noon" series on the 14th September, 2025.
