@@ -5,6 +5,7 @@ title: Judith Ring
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
+- Awarded a music bursary from the Arts Council of Ireland to work on a set of 3 piano pieces for 3 very different performers: Alex Raineri in Australia, Xenia Pestova-Bennett in Ireland and Jihyung Youn in the US.
 - Currently completing a string quartet "Raise a Tragic Chorus in a Gale". Premiere will be performed early in the new year by Contempo as part of the Music Connects series in St Nicholas’ Collegiate Church, Galway.
 - NEW RELEASE - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 is featured on a release of flute and piano music called "Parallel Play" by Alex Raineri and Lina Andonovska released on Navona, Parma Recordings in August 2025. [links to album](https://lnk.fuga.com/linaandonovskaalexraineri_parallelplay)
 - Luail - Ireland's National Dance Company - Moving in Collaboration International Intensive 2025 - Co-leading a one week workshop in July 8th-12th, 2025, in collaboration with choreographers Liz Roche, Jonathan Burrows and composer Mel Mercier at the Irish World Academy, UL, Limerick. [Click here for more info](https://luail.ie/production/moving-in-collaboration-international-intensive-2025/)
@@ -21,7 +22,7 @@ title: Judith Ring
 # RECENT AND UPCOMING PERFORMANCES
 
 ## DECEMBER 2025
-"Swells and Shoots" for viola and cello will be performed by Crash ensemble at the Hugh Lane Gallery, Sundays at Noon - 7th December, 12 noon
+"Swells and Shoots" for viola and cello will be performed by Crash ensemble at the Hugh Lane Gallery, Sundays Concert Series - 7th December, 13.00 at the Abbey Presbyterian Church (Findlater's), Parnell Square, Dublin.
 
 ## NOVEMBER 2025
 "Winter Wisps Softly Dissipate" for accordion and cello will be performed by Cellist Bianca Breitfeld from Wiesbaden and accordionist Janne Valkeajoki from Helsinki in Bamberg, Germany, at the Johanniskapelle on Sunday, 30th November at 11am as part of the festival "Tage der Neuen Musik Bamberg". 
