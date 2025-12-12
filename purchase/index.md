@@ -37,6 +37,19 @@ View the poems [here](poems)
 <br>
 <br>
 <br>
+
+<div class="photo-with-credit">
+  <img src="/assets/img/Tracing_Ghosts_Alex_Raineri.jpg" width="180" height="180">
+</div>Tracing Ghosts -  Alex Raineri's album for solo piano features my piece "Dusting the Moth" [link to recording](https://www.youtube.com/watch?v=ROT9fBlzijg)
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
 <div class="photo-with-credit">
   <img src="/assets/img/parallel_play.jpg" width="180" height="180">
 </div>Parallel Play - Lina Andonovska and Alex Raineri's album for flute and piano features my piece "All You Can Do Is Hang On For Dear Life" commissioned by the Brisbane Music Festival in 2024 and released on Navona. [linktree](https://lnk.fuga.com/linaandonovskaalexraineri_parallelplay)
