@@ -5,7 +5,7 @@ title: Judith Ring
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
-- NEW RELEASE - my piece "Dusting the Moth" for solo piano was recorded by the extraordinary pianist Alex Raineri for his brand new album release "Tracing Ghost" on the 12th December 2025 [link to recording](https://www.youtube.com/watch?v=ROT9fBlzijg)
+- NEW RELEASE - my piece "Dusting the Moth" for solo piano was recorded by the extraordinary pianist Alex Raineri for his brand new album release "Tracing Ghosts" on the 12th December 2025 [link to recording](https://www.youtube.com/watch?v=ROT9fBlzijg)
 - Awarded a music bursary from the Arts Council of Ireland to work on a set of 3 piano pieces for 3 very different performers: Alex Raineri in Australia, Xenia Pestova-Bennett in Ireland and Jihyung Youn in the US.
 - Currently completing a string quartet "Raise a Tragic Chorus in a Gale". Premiere will be performed early in the new year by Contempo as part of the Music Connects series in St Nicholas’ Collegiate Church, Galway.
 - NEW RELEASE - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 is featured on a release of flute and piano music called "Parallel Play" by Alex Raineri and Lina Andonovska released on Navona, Parma Recordings in August 2025. [links to album](https://lnk.fuga.com/linaandonovskaalexraineri_parallelplay)
