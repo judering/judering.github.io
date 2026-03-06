@@ -3,11 +3,11 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
-## Raise a Tragic Chorus in a Gale - string quartet
+## Raise a Tragic Chorus in a Gale (2025) - string quartet
 - ConTempo - MusicConnects concert, Claregalway Castle, 29th March 2026
 - ConTempo - MusicConnects concert, St. Nicholas' Collegiate Church, Galway, 3rd March 2026
 
-## Something Beyond - solo piano
+## Something Beyond (2024) - solo piano
 Performed at the quarter finals of the Dublin International Piano Competition 2025 by:
 - Charles Berofsky
 - Elia Cecino 
