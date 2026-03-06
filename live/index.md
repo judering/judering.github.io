@@ -3,6 +3,10 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## Raise a Tragic Chorus in a Gale - string quartet
+- ConTempo - MusicConnects concert, Claregalway Castle, 29th March 2026
+- ConTempo - MusicConnects concert, St. Nicholas' Collegiate Church, Galway, 3rd March 2026
+
 ## Something Beyond - solo piano
 Performed at the quarter finals of the Dublin International Piano Competition 2025 by:
 - Charles Berofsky
@@ -28,7 +32,7 @@ Performed at the quarter finals of the Dublin International Piano Competition 20
 13.10.
 
 ## The River Was Never Afraid (2024) - written for Evlana ensemble
-- Evlana ensemble, New Music Dublin, 5.30pm, 6th April, Kevein Barry room.
+- Evlana ensemble, New Music Dublin, 5.30pm, 6th April, Kevin Barry room.
 - Evlana ensemble, Finding a Voice Festival, Clonmel, Ireland, 7,30pm, STAC chapel. 
 
 ## The Sylph (2017) - one of the Ring Lieder collection. 
@@ -53,6 +57,8 @@ Performed at the quarter finals of the Dublin International Piano Competition 20
 ## Winter Wisps Softly Dissipate (2022) - written for Christian-Pierre La Marca (cello) and Félician Brut's (accordion) Music Network tour of Ireland, November 2022
 Commissioned by Music Network.
 
+- Bianca Breitfeld and Janne Valkeajoki, Tage der Neuen Musik Bamberg, 30th November 2025, 11am
+- Christian-Pierre La Marca and Félicien Brut performed on the following dates:
 - Thursday 10 Nov - 8pm
 Regional Cultural Centre, Letterkenny
 - Saturday 12 Nov - 3pm
@@ -149,6 +155,7 @@ The Parade Tower, Kilkenny Castle
 - performed as solo voice and piano by myself at the Lighthouse, Valentia, 18th August 2018
 
 ## Swells and Shoots (2016) for Adele and Martin Johnson - viola and cello.
+- Kate Ellis and Lisa Dowdall, Hugh Lane Gallery Sundays at noon concert at the Abbey Presbyterian Church, 7th December, 2025 
 - Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, Sep 22nd 2017 as part of Culture Night. 
 - Kate Ellis and Lisa Dowdall perform at The Ark, Temple Bar, June 24th 2017.
 - Performed by Martin and Adele Johnson at the Lutheran Hall, Adelaide road as part of CMC new music salon in November 2016.
@@ -365,20 +372,24 @@ Hall, 5th December, 2009.
 exhibition in Gdansk, Poland. (2004)
  
 ## CDs:
-1. CMC, new music​:​:​new Ireland four (2022) - promotional cd featuring 18 composers compositions including my piece "Invisible Scamper" for solo cello performed by Martin Johnson. 
-1. WILDWOOD - cello suite written for and performed by Martin Johnson.
-2. A Way A Lone A Last - features my piece "A Breath of Fresh Air" written for and performed by Lina Andonovska.
-3. KnowingUnknowing - Benjamin Dwyer CD features a collaborative piece by myself and Peter Moran Anois 's Arís. (2019)
-4. 101 Beats Per Minute - features an electronic piece of mine written especially for this release. (2019)
-5. The Ring Lieder - on poems by Roderick Ford. - EP of 4 songs. (2017)
-6. What Was – Judith Ring – Ergodos records – first complete cd of works (2014)
-7. Reflections – Concorde CD (2010) – featuring …within an egg of space… 
-8. Dubh – Trio Scordatura CD – released on Ergodos records (2010) – “hush…”
-9. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.9 (2010) – “…within an egg of space…” performed by Concorde.
-10. CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.4. (2004) – “phorM” (extract)
-11. THE MUSIC BOARD OF IRELAND – “Nocan” – A collection of contemporary Irish music and film (2004).
-12. BY THE NEW TIME – “Accumulation” Compilation of Irish electro-acoustic music compiled by Roger Doyle. (2001)
-13. 22ND LUIGI RUSSOLO PRIZE – “Accumulation” (2000)
+- Tracing Ghosts - by Alex Raineri featuring my piece "Dusting the Moth" for solo piano
+- Parallel Play - by Lina Andonovska (flute) and Alex Raineri (piano) featuring my piece "All You Can Do Is Hang On For Dear Life" 
+- Six Pieces - by Larissa O'Grady featuring my piece "Swept Through the Floods" for violin and electronics
+- The Irish Double Bass - by Malachy Robinson featuring his arrangement of my piece "Twilight"
+- CMC, new music​:​:​new Ireland four (2022) - promotional cd featuring 18 composers compositions including my piece "Invisible Scamper" for solo cello performed by Martin Johnson. 
+- WILDWOOD - cello suite written for and performed by Martin Johnson.
+- A Way A Lone A Last - features my piece "A Breath of Fresh Air" written for and performed by Lina Andonovska.
+- KnowingUnknowing - Benjamin Dwyer CD features a collaborative piece by myself and Peter Moran Anois 's Arís. (2019)
+- 101 Beats Per Minute - features an electronic piece of mine written especially for this release. (2019)
+- The Ring Lieder - on poems by Roderick Ford. - EP of 4 songs. (2017)
+- What Was – Judith Ring – Ergodos records – first complete cd of works (2014)
+- Reflections – Concorde CD (2010) – featuring …within an egg of space… 
+- Dubh – Trio Scordatura CD – released on Ergodos records (2010) – “hush…”
+- CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.9 (2010) – “…within an egg of space…” performed by Concorde.
+- CMC, CONTEMPORARY MUSIC FROM IRELAND VOL.4. (2004) – “phorM” (extract)
+- THE MUSIC BOARD OF IRELAND – “Nocan” – A collection of contemporary Irish music and film (2004).
+- BY THE NEW TIME – “Accumulation” Compilation of Irish electro-acoustic music compiled by Roger Doyle. (2001)
+- 22ND LUIGI RUSSOLO PRIZE – “Accumulation” (2000)
  
 ## FILM and VIDEO ART MUSIC:
 - 13 STORMS - Director and creator Clare Langan (2017) - she used sections of my electronic piece "Congestion/Illusion" for parts of the film. 
