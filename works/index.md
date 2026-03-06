@@ -9,7 +9,7 @@
 <a href="#ELECTRONIC">ELECTRONIC</a> |
 <a href="#SONGS">SONGS</a>
 
-List of compositions from 1999 - 2024
+List of compositions from 1999 - 2026
 
 <h2 id="SOLO">SOLO</h2>
 
