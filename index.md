@@ -16,7 +16,10 @@ title: Judith Ring
  
 # RECENT AND UPCOMING PERFORMANCES
 
+
 ## MARCH 2026
+"A Breath of Fresh Air" for solo flute will be performed by Lina Andonovska at UCD music department at 1pm on Thursday 26th March.
+
 The world premiere of my new string quartet "Raise a Tragic Chorus in a Gale" was performed by ConTempo at a MusicConnects lunchtime concert on the 3rd March and will be performed again by ConTempo at Claregalway Castle on the 29th March at 4pm. 
 
 ## DECEMBER 2025
