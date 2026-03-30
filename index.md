@@ -16,6 +16,16 @@ title: Judith Ring
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## OCTOBER 2026
+"Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Galway at the Ardilaun Hotel on October 3rd, 2026.
+
+"Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Dublin at the Royal Irish Academy of Music (RIAM) on the 1st of October 2026.
+
+## SEPTEMBER 2026
+"Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Limerick UCH on Sept 30th, 2026
+
+## APRIL 2026
+"The River Was Never Afraid" for flute, clarinet in Bb, percussion, piano, violin and cello will be performed by The Emory Sound Collective at Emory University, Atlanta, Georgia, Sunday, April 12th, 2026 at 2pm.
 
 ## MARCH 2026
 "A Breath of Fresh Air" for solo flute will be performed by Lina Andonovska at UCD music department at 1pm on Thursday 26th March.
