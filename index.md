@@ -5,7 +5,7 @@ title: Judith Ring
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
-- Commissioned to write an orchestral piece for the National Symphony Orchestra of Ireland and the National Concert Hall to commemorate the 250th anniversary of Beethoven's death in 2027. The performance will happen in March 2027.
+- Commissioned to write an orchestral piece for the National Symphony Orchestra of Ireland and the National Concert Hall to commemorate the 200th anniversary of Beethoven's death in 2027. The performance will happen in March 2027.
 - Awarded a music bursary from the Arts Council of Ireland to work on a set of 3 piano pieces for 3 very different performers: Alex Raineri in Australia, Xenia Pestova-Bennett in Ireland and Jihyung Youn in the US.
 - NEW RELEASE - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 is featured on a release of flute and piano music called "Parallel Play" by Alex Raineri and Lina Andonovska released on Navona, Parma Recordings in August 2025. [links to album](https://lnk.fuga.com/linaandonovskaalexraineri_parallelplay)
 - The 13th Dublin International Piano Competition took place in May 2025. I was one of 4 composers (myself, Ailís Ní Ríain, David Coonan and Roger Doyle) commissioned by RTÉ Lyric FM to write piece for the quarter finalists of the competition which took place from the 9th-11th May. I was privileged to have 16 out of 26 quarter finalists choose my piece to perform as part of their 40 minute programme and it was an incredible experience to hear them all. More info here: [dipc.ie](http://dipc.ie)
@@ -16,6 +16,9 @@ title: Judith Ring
  
 # RECENT AND UPCOMING PERFORMANCES
 
+## MARCH 2027
+"Beneath the Shadows" for orchestra will be performed by the National Symphony Orchestra of Ireland on the 19th March 2026, 7.30pm at the National Concert Hall.
+
 ## OCTOBER 2026
 "Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Galway at the Ardilaun Hotel on October 3rd, 2026.
 
@@ -23,6 +26,8 @@ title: Judith Ring
 
 ## SEPTEMBER 2026
 "Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Limerick UCH on Sept 30th, 2026
+
+"Of Woods and Water" for string quartet will be performed by ConTempo as part of their tour from the 9th-13th of September. More info on venues soon.
 
 ## APRIL 2026
 "The River Was Never Afraid" for flute, clarinet in Bb, percussion, piano, violin and cello will be performed by The Emory Sound Collective at Emory University, Atlanta, Georgia, Sunday, April 12th, 2026 at 2pm.
