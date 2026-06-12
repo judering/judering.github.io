@@ -8,6 +8,9 @@ title: Performances
 - ConTempo - MusicConnects concert, St. Nicholas' Collegiate Church, Galway, 3rd March 2026
 
 ## Something Beyond (2024) - solo piano
+- Carter Johnson, Ardilaun Hotel, Galway, 3rd Oct, 2026
+- Carter Johnson, RIAM, Dublin, 1st Oct, 2026
+- Carter Johnson, Limerick UCH, September 30th, 2026
 Performed at the quarter finals of the Dublin International Piano Competition 2025 by:
 - Charles Berofsky
 - Elia Cecino 
@@ -32,6 +35,7 @@ Performed at the quarter finals of the Dublin International Piano Competition 20
 13.10.
 
 ## The River Was Never Afraid (2024) - written for Evlana ensemble
+- The Emory Sound Collective, Emory University, Atlanta Georgia, USA, April 12th 2026 at 2pm.
 - Evlana ensemble, New Music Dublin, 5.30pm, 6th April, Kevin Barry room.
 - Evlana ensemble, Finding a Voice Festival, Clonmel, Ireland, 7,30pm, STAC chapel. 
 
@@ -77,6 +81,7 @@ The Large Room, City Hall, Waterford
 The Parade Tower, Kilkenny Castle
 
 ## Of Woods and Water (2022) - written for the Appalachian Chamber Music Festival, USA
+- ConTempo, tour of Ireland 9th-13th September, 2026.
 - ConTempo, St. Nicholas’ Collegiate Church, Galway, 4th February, 2025, 1.10pm
 - ConTempo, Connemara National Park, 1st February, 2025, 5.30pm
 - Festival Finale, Happy Retreat, Charlestown, VA, on the 28 August 2022
@@ -99,6 +104,7 @@ The Parade Tower, Kilkenny Castle
 - Lina Andonovska x 2 - written for the Music Network Butterfly Sessions as part of a response to the lockdown. We recorded this as a video broadcast with Lina dueting with herself. 
 
 ## A Breath of Fresh Air (2019) for Lina Andonovska - Flute solo
+- Lina Andonovska - UCD, 26th March, 2026
 - Lina Andonovska - DCU, 9th February, 2025
 - Lina Andonovska - First Fridays - MOLI, Dublin, 8pm, 4th October 2024.
 - Lina Andonovska - Éiríocht - New Music From Ireland, Berlin, March 24th, 2024. 7.30pm
@@ -184,6 +190,8 @@ The Parade Tower, Kilkenny Castle
 - RHA, Ely Place, Dublin, 20th January 2013. Two performances.
 
 ## FLUX – jeux de bague (2012) for Ondes Martenot and tape. Written for and in collaboration with Nathalie Forget.
+
+- Sonic Experience #3 at Au Poney Fringant, 9 Place de L’Horlage, 26400 Saou,France, on the 14th June at 9pm.
 - Pierre-Emmanuel Hurpeau at the Mediatheque, Conservatoire National Supérieur de musique et de danse de Paris, 14th February, 18.00.
 - Nathalie Forget at the Musée des Confluences, 8th of October at 8pm. 
 - Nathalie Forget at the Royal Liverpool Philharmonic, 26th Jan 2018.
