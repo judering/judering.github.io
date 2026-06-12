@@ -30,7 +30,7 @@ title: Judith Ring
 "Of Woods and Water" for string quartet will be performed by ConTempo as part of their tour from the 9th-13th of September. More info on venues soon.
 
 ## JUNE 2026
-"Flux" for Ondes Martenot composed in collaboration with Nathalie Forget will be performed at Sonic Experience #3 at Au Poney Fringant, 9 Place de L'Horlage, 26400 Saou, on the 14th June at 9pm.
+"Flux" for Ondes Martenot composed in collaboration with Nathalie Forget will be performed at Sonic Experience #3 at Au Poney Fringant, 9 Place de L'Horlage, 26400 Saou,France, on the 14th June at 9pm.
 
 ## APRIL 2026
 "The River Was Never Afraid" for flute, clarinet in Bb, percussion, piano, violin and cello will be performed by The Emory Sound Collective at Emory University, Atlanta, Georgia, Sunday, April 12th, 2026 at 2pm.
