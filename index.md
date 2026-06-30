@@ -27,7 +27,12 @@ title: Judith Ring
 ## SEPTEMBER 2026
 "Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Limerick UCH on Sept 30th, 2026
 
-"Of Woods and Water" for string quartet will be performed by ConTempo as part of their tour from the 9th-13th of September. More info on venues soon.
+"Of Woods and Water" for string quartet will be performed by ConTempo as part of their tour from the 9th-13th of September. 
+NEWBRIDGE - Wednesday 9th September at 8pm - Riverbank Arts Centre
+DUNDALK - Thursday 10th September at 8pm - An Táin Arts Centre
+BIRR - Friday 11th September at 8pm - Birr Theatre and Arts Centre
+CORK - Saturday 12th September at 1pm - Triskel Christchurch (Haydn, Ring, Beethoven)
+DUBLIN - Sunday 13th September at 3pm - National Concert Hall
 
 ## JUNE 2026
 "Flux" for Ondes Martenot composed in collaboration with Nathalie Forget will be performed at Sonic Experience #3 at Au Poney Fringant, 9 Place de L'Horlage, 26400 Saou, France, on the 14th June at 9pm.
