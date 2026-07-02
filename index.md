@@ -39,6 +39,9 @@ CORK - Saturday 12th September at 1pm - Triskel Christchurch (Haydn, Ring, Beeth
 
 DUBLIN - Sunday 13th September at 3pm - National Concert Hall
 
+## AUGUST 2026
+"All You Can Do Is Hang On For Dear Life" for flute and piano - performed by Lina Andonovska at the National Flute Association Convention 2026 in Portland Oregon on the 8 August 18.00 - 19.00.
+ 
 ## JUNE 2026
 "Flux" for Ondes Martenot composed in collaboration with Nathalie Forget will be performed at Sonic Experience #3 at Au Poney Fringant, 9 Place de L'Horlage, 26400 Saou, France, on the 14th June at 9pm.
 
