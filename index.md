@@ -17,7 +17,7 @@ title: Judith Ring
 # RECENT AND UPCOMING PERFORMANCES
 
 ## MARCH 2027
-"Beneath the Shadows" for orchestra will be performed by the National Symphony Orchestra of Ireland on the 19th March 2026, 7.30pm at the National Concert Hall.
+"Beneath the Shadows" for orchestra will be performed by the National Symphony Orchestra of Ireland on the 19th March 2027, 7.30pm at the National Concert Hall.
 
 ## OCTOBER 2026
 "Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Galway at the Ardilaun Hotel on October 3rd, 2026.
@@ -41,7 +41,7 @@ DUBLIN - Sunday 13th September at 3pm - National Concert Hall
 
 ## AUGUST 2026
 "All You Can Do Is Hang On For Dear Life" for flute and piano - performed by Lina Andonovska at the National Flute Association Convention 2026 in Portland Oregon on the 8 August 18.00 - 19.00.
- 
+
 ## JUNE 2026
 "Flux" for Ondes Martenot composed in collaboration with Nathalie Forget will be performed at Sonic Experience #3 at Au Poney Fringant, 9 Place de L'Horlage, 26400 Saou, France, on the 14th June at 9pm.
 
