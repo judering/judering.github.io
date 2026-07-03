@@ -126,7 +126,7 @@ The Parade Tower, Kilkenny Castle
 - Kate Ellis - premiere performance at Birr Music Festival, Offaly, 3rd May, 2019
 
 ## Dusting the Moth (2018) for Mary Dullea - solo piano
-- performed by Alex Raineri at [Brisbane Music Festival](https://brismusicfestival.com/3-mirage/) on the 27 November at 7.30pm
+- performed by Alex Raineri at [Brisbane Music Festival](https://brismusicfestival.com/3-mirage/) on the 27 November, 2019, at 7.30pm
 - Mary Dullea premiered this piece at Glanleam House, Valentia island as part of the Chamber Music on Valentia festival 17th August 2018.
 
 ## The Black Stone Sinks Deeply (2018) for Silver Kites - vocal trio 
@@ -186,8 +186,8 @@ The Parade Tower, Kilkenny Castle
 - Sepia ensemble – Hugh Lane Gallery – 1st Feb 2015 at noon.
 - Concorde’s 2014 Up Close with Music series at the RHA Gallery on Sunday April 27th from 2.30 – 4.30 pm.
 - Concorde join the Galway Ensemble in Residence: ConTempo Quartet for a concert in the Aula Maxima, NUI Galway at 8 pm on 8 February.
-- Hugh Lane Gallery, 6th October 2013
-- RHA, Ely Place, Dublin, 20th January 2013. Two performances.
+- Concorde, Hugh Lane Gallery, 6th October 2013
+- Concorde, RHA, Ely Place, Dublin, 20th January 2013. Two performances.
 
 ## FLUX – jeux de bague (2012) for Ondes Martenot and tape. Written for and in collaboration with Nathalie Forget.
 
