@@ -27,6 +27,10 @@ title: Judith Ring
 ## SEPTEMBER 2026
 "Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Limerick UCH on Sept 30th, 2026
 
+"Swept Through the Floods" - for solo violin and electronics, performed by Larissa O'Grady at Culture Night in Belfast, Ulster University Campus, 18th September, 8pm.
+
+"Swept Through the Floods" - for solo violin and electronics, performed by Larissa O'Grady at the Future of Music conference, IAMIC conference with CMC, Trinity College Dublin, 10th September, 11am.
+
 "Of Woods and Water" for string quartet will be performed by ConTempo as part of their tour from the 9th-13th of September. 
 
 NEWBRIDGE - Wednesday 9th September at 8pm - Riverbank Arts Centre

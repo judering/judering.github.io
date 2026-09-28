@@ -43,7 +43,9 @@ Performed at the quarter finals of the Dublin International Piano Competition 20
 - Michelle O'Rourke - Hugh Lane Gallery, 4th June 2023
 
 ## Swept Through the Floods (2023) - written for Larissa O'Grady (violin and tape)
-- Rebekka Wagner - Internationales Künstlerhaus Villa Concordia, Bamberg, 27th May, 7pm
+- Larissa O'Grady - Ulster University Campus, Culture Night, Sep 18th 2026
+- Larissa O'Grady - IAMIC conference with CMC, TCD, 10th Sep, 2026.
+- Rebekka Wagner - Internationales Künstlerhaus Villa Concordia, Bamberg, 27th May 2025, 7pm
 - Rebekka Wagner - 35. Bamberg Kurzfilmtage at the Kurzfilmklub on the 25th January, 2024 at 6pm
 - Rebekka Wagner - Internationales Künstlerhaus Villa Concordia, 17th December, 7pm.
 - Larissa O'Grady - Contemporary Music Centre, Dublin, 7th November, 6-8pm.
