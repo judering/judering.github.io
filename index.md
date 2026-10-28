@@ -19,6 +19,9 @@ title: Judith Ring
 ## MARCH 2027
 "Beneath the Shadows" for orchestra will be performed by the National Symphony Orchestra of Ireland on the 19th March 2027, 7.30pm at the National Concert Hall.
 
+## NOVEMBER 2026
+"With Every Stone Cast" for solo piano written in collaboration with Alex Raineri will be premiered by Alex at the Brisbane Music Festival on November 21st, FourthWall Arts - 540 Queen St. at 6.30pm.
+
 ## OCTOBER 2026
 "Something Beyond" for solo piano will be performed by DIPC 2025 winner Carter Johnson in Galway at the Ardilaun Hotel on October 3rd, 2026.
 
