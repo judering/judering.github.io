@@ -5,6 +5,7 @@ title: Judith Ring
 
 
 # CURRENT PROJECTS, NEWS AND PLANS
+- Elected to Aosdána,the affiliation of creative artists in Ireland in October 2026. 
 - Commissioned to write an orchestral piece for the National Symphony Orchestra of Ireland and the National Concert Hall to commemorate the 200th anniversary of Beethoven's death in 2027. The performance will happen in March 2027.
 - Awarded a music bursary from the Arts Council of Ireland to work on a set of 3 piano pieces for 3 very different performers: Alex Raineri in Australia, Xenia Pestova-Bennett in Ireland and Jihyung Youn in the US.
 - NEW RELEASE - "All You Can Do Is Hang On For Dear Life" commissioned by Alex Raineri for the Brisbane Music Festival 2024 is featured on a release of flute and piano music called "Parallel Play" by Alex Raineri and Lina Andonovska released on Navona, Parma Recordings in August 2025. [links to album](https://lnk.fuga.com/linaandonovskaalexraineri_parallelplay)

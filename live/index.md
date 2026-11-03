@@ -3,6 +3,9 @@ title: Performances
 ---
 # PERFORMANCES (by piece):
 
+## With Every Stone Cast (2026) - solo piano
+- Alex Raineri - Brisbane Music Festival 2026, November 21st, FourthWall Arts - 540 Queen St. at 6.30pm
+
 ## Raise a Tragic Chorus in a Gale (2025) - string quartet
 - ConTempo - MusicConnects concert, Claregalway Castle, 29th March 2026
 - ConTempo - MusicConnects concert, St. Nicholas' Collegiate Church, Galway, 3rd March 2026
