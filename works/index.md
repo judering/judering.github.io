@@ -77,6 +77,7 @@ List of compositions from 1999 - 2026
 
 <h2 id="ORCHESTRA">ORCHESTRA</h2>
 
+- Beneath the Shadows (2026) - symphony orchestra
 - Everything was asleep as if the universe was a vast mistake (2022)- symphony orchestra
 - Invisible Shadows (2008) - chamber orchestra
 
