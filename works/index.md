@@ -13,6 +13,7 @@ List of compositions from 1999 - 2026
 
 <h2 id="SOLO">SOLO</h2>
 
+- With Every Stone Cast (2026) - piano
 - Something Beyond (2024) - piano
 - Swept Through the Floods* (2023) - violin
 - Across the Empty Squares* (2021) - accordion
