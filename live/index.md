@@ -4,7 +4,7 @@ title: Performances
 # PERFORMANCES (by piece):
 
 ## Beneath the Shadows (2026) - Symphony orchestra
-- National symphony orchestra of Ireland - March 19th, 2026, 7.30pm, National Concert Hall, Dublin.
+- National symphony orchestra of Ireland - March 19th, 2027, 7.30pm, National Concert Hall, Dublin.
 
 ## With Every Stone Cast (2026) - solo piano
 - Alex Raineri - Brisbane Music Festival 2026, November 21st, FourthWall Arts - 540 Queen St. Brisbane, Australia, at 6.30pm
